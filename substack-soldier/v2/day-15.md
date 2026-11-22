@@ -8,7 +8,7 @@ I went up with a blanket over my shoulders and the Colonel padding behind. A har
 
 The first hour was fine. I did the checklist in my head, left, center, right, sound, smell, movement, left, center, right. A flare went up, far off, white and slow, and hung there, and everything under it looked like a photograph of itself. Then it went out and the dark was blacker.
 
-The second hour was different. The mind drifts. You can't stop it. I thought about my father, who died when I was twenty-six, who once drove four hours to bring me a forgotten jacket. I thought about the apartment, the creak of the third stair, how Sonya jumps from the bottom step on purpose to make it creak. About my last job before the call, a short documentary about a beekeeper in the Carpathians. I'd recorded his hives. Forty thousand bees, a living low hum, like a choir that never ends.
+The second hour was different, because the mind drifts and you can't stop it. I thought about my father, who died when I was twenty-six, who once drove four hours to bring me a forgotten jacket. I thought about the apartment, the creak of the third stair, how Sonya jumps from the bottom step on purpose to make it creak. About my last job before the call, a short documentary about a beekeeper in the Carpathians. I'd recorded his hives. Forty thousand bees, a living low hum, like a choir that never ends.
 
 I wondered whether they were still there. Whether anybody was recording them. I decided it mattered more than almost anything, someone holding up a microphone to a small stubborn life.
 

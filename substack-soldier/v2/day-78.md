@@ -4,9 +4,7 @@
 
 Maksym was hit on a Wednesday, and I'm going to tell it in the order I understood it, which wasn't the order it happened.
 
-I understood first that something was wrong with the quiet. It was a clear bright morning, the larks up, and then the larks stopped. All at once. In the way Zenko says birds do. We all looked up.
-
-I understood second that Halyna was already running.
+I understood first that something was wrong with the quiet. It was a clear bright morning, the larks up, and then the larks stopped. All at once. In the way Zenko says birds do. We all looked up. I understood second that Halyna was already running.
 
 He'd gone out at first light to look at a stretch of the line himself. He does that. He's learned. He goes out in the morning with Motor's old binoculars and walks the section, not to give orders, just to see. He'd told us where he was going. Motor had said, "Take someone." Maksym had said, "Next time." It was the sort of thing a boy says.
 

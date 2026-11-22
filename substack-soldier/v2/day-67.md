@@ -40,9 +40,9 @@ I counted. I'm good at it now. Outgoing, theirs, the delay, the arrival. I did i
 
 "It frightens me," she said. "It's like you're someone else."
 
-I stopped. We sat there in the dark with the child between us and the building trembling and I understood that I wasn't the same man who'd left. Not worse. Different, in a way she could hear.
+I stopped. We sat there in the dark with the child between us and the building trembling and I understood that I wasn't the same man who'd left. Different, not worse, in a way she could hear.
 
-It lasted forty minutes. Nothing landed near. At 3:20 the all-clear. Sonya had slept through most of it, one foot out of the blanket. I looked at that foot.
+It lasted forty minutes and nothing landed near; at 3:20 came the all-clear. Sonya had slept through most of it, one foot out of the blanket. I looked at that foot.
 
 In the morning, on our street, the bakery was open, and a window two doors down had plywood in it.
 

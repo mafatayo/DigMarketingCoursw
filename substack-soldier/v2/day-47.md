@@ -4,7 +4,7 @@
 
 I'm going to describe a good day, because we need one on record, and because it's hard to do. Good days leave no marks.
 
-It began with the sun. Not a grand one, a thin clear one through a hole in the cloud, lying along the frost like a blade. The cold was dry and bright. The Colonel stood on the sandbags and barked at nothing with great importance.
+It began with a thin clear sun through a hole in the cloud, lying along the frost like a blade. The cold was dry and bright. The Colonel stood on the sandbags and barked at nothing with great importance.
 
 Breakfast was eggs. Real ones, from a village woman who wouldn't take payment. Halyna fried them with a little onion in a pan on the stove, and the smell was so good that Zenko stopped mid-sentence and closed his eyes. We ate in silence, each of us in a small private church.
 
@@ -20,7 +20,7 @@ At dusk six of us sat in a row on the sandbags with mugs while the sky turned vi
 
 That was all. That was a good day. Warm eggs, a clear sky, the shared quiet of people who like each other.
 
-I wrote it down so I'd remember. If you ever wonder what we're fighting for, I don't think it's flags or maps. It's days like that, in as many kitchens as possible, for as long as possible.
+I wrote it down so I'd remember. If you ever wonder what we're fighting for, I think it's days like that, in as many kitchens as possible, for as long as possible, and not flags or maps.
 
 When I put out the lamp that night I thought: *that was a very good day, and I should hold onto it.* I didn't know why. I just had the feeling you get when you've been given a gift and haven't been told the price.
 

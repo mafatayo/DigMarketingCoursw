@@ -6,7 +6,7 @@ I've been saving the questions, and tonight, with the lamp low and the stove tic
 
 **How do you keep going on the days you don't want to?**
 
-You don't keep going. You do the next thing. That's a different muscle. A kettle. A bucket. A letter. Nobody has to want to. They just have to start, and the wanting sometimes shows up later like a late guest.
+You don't keep going, you do the next thing, which is a different muscle: a kettle, a bucket, a letter. Nobody has to want to. They just have to start, and the wanting sometimes shows up later like a late guest.
 
 **What's the funniest thing that's happened?**
 

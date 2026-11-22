@@ -42,7 +42,7 @@ An hour later, I heard him whisper. "Lys?"
 
 "Is it always this loud?"
 
-I listened. A distant thud. The stove ticking. Motor's four bars, soft.
+I listened: a distant thud, the stove ticking, Motor's four bars, soft.
 
 "This isn't loud," I said. "This is Tuesday."
 

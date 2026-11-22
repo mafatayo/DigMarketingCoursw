@@ -6,9 +6,7 @@ I met my old friend Pavlo for coffee on the fifth day of leave. It was the lonel
 
 He's an old friend, the real kind. School together. My best man. A good funny kind person with a wide laugh and a habit of finishing my sentences wrong. A developer, works from home. He's stayed safe, as people should. I'm glad. I want him safe.
 
-We sat in a café with warm yellow lights and good coffee. He looked well. Rested. A new haircut. For five minutes we talked about nothing, football, his girlfriend, his new flat, and it was lovely, a dip into a warm bath.
-
-Then he asked.
+We sat in a café with warm yellow lights and good coffee. He looked well, rested, with a new haircut. For five minutes we talked about nothing, football, his girlfriend, his new flat, and it was lovely, a dip into a warm bath. Then he asked.
 
 "So. What's it *like?*"
 
@@ -44,7 +42,7 @@ He laughed thickly. "My haircut isn't stupid."
 
 "It's a bit stupid."
 
-We sat there. The gap between us wasn't anger or blame. It was distance, the long cold gap between two kinds of life. He couldn't cross it and I couldn't carry him over, and that was no one's fault.
+We sat there. The gap between us was distance, the long cold gap between two kinds of life, and not anger or blame. He couldn't cross it and I couldn't carry him over, and that was no one's fault.
 
 What I didn't say, because there wasn't a way: that the whole café had looked, for a moment, like something on a screen. Behind glass. And that I'd felt, in the middle of the warm yellow light, a sudden savage wish to be back in the dugout where I knew where everyone was.
 

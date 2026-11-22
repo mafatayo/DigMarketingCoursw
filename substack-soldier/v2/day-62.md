@@ -6,9 +6,7 @@ Twelve dishes is the tradition. That's the rule for the Holy Supper, and my gran
 
 The evening began with a debate that ran four days. Who'd cook what. Where we'd find ingredients. Whether the potatoes counted as one dish or two. Zenko claimed the number twelve was symbolic and could be met with "creative interpretation." Halyna said, "You can't interpret borshch." Vira said, "Then bring the borshch."
 
-We assembled what we had. Beet soup, from Halyna, out of a tin and a miracle. Boiled potatoes with garlic. Pickled cucumbers from Babusya's last jar. Bread from a village baker. *Uzvar,* stewed dried fruit, from a bag of apples and plums a driver had left. Beans. Honey, a spoon each. And kutia, the wheat porridge with poppy seed, which the chaplain had walked three kilometers to bring, in a pot wrapped in a towel.
-
-Seven. Nobody said it wasn't twelve.
+We assembled what we had. Beet soup, from Halyna, out of a tin and a miracle. Boiled potatoes with garlic. Pickled cucumbers from Babusya's last jar. Bread from a village baker. *Uzvar,* stewed dried fruit, from a bag of apples and plums a driver had left. Beans. Honey, a spoon each. And kutia, the wheat porridge with poppy seed, which the chaplain had walked three kilometers to bring, in a pot wrapped in a towel. Seven. Nobody said it wasn't twelve.
 
 We cleared the crate and spread Zenko's embroidered cloth. Halyna set a candle in the middle, a stub in a mug. At the head of the table, by tradition, stood an empty chair, for whoever couldn't be there. We left it. Nobody explained why. Beside it a plate, with a spoonful of each, and a mug of tea.
 

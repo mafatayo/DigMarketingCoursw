@@ -8,15 +8,15 @@ It's evening. The lamp low, the dugout mostly asleep. Vira's on watch. Halyna is
 
 Physically: thinner, harder, grayer. A new line at the corner of each eye. Hands rough as bark. I can lift more than when I arrived, and sleep less, and walk farther in worse boots. I've stopped noticing the cold. That scares me a little.
 
-Mentally: stranger. I expected to harden. I expected a flinty numb resolve. Instead I've gone soft in odd places. A song on the radio can undo me. A stranger's pickle. A dog's weight against my leg. I cry more than I did at home. Not for grief, mostly. For something that feels like recognition.
+Mentally: stranger. I expected to harden. I expected a flinty numb resolve. Instead I've gone soft in odd places. A song on the radio can undo me. A stranger's pickle. A dog's weight against my leg. I cry more than I did at home, mostly not for grief but for something that feels like recognition.
 
-I've also become more honest. There's no room for pretending. If I'm sad, Halyna notices. If I'm lying, Vira catches me. If I'm being selfish, Motor hands me a bucket. A hard school, but a good one.
+I've also become more honest, since there's no room for pretending: if I'm sad, Halyna notices. If I'm lying, Vira catches me. If I'm being selfish, Motor hands me a bucket. A hard school, but a good one.
 
 What I've lost, as exactly as I can put it: certainty. Some sleep. Some innocence about what a person can do to another. A friend, two friends, depending on how you count. The ability to be bored by the news.
 
 What I've gained: a family of strangers, a sense of how little I need, an understanding of how large an ordinary kindness can be.
 
-And a debt. I can't put it any other way. I'm now carrying the name of a boy who flew drones and said sorry, and a razor, and a swallow, and a notebook, and I don't know where to put them down. I've realized I can't. That's the thing. They go where I go.
+And a debt. I can't put it any other way. I'm now carrying the name of a boy who flew drones and said sorry, and a razor, and a swallow, and a notebook, and I don't know where to put them down. I've realized I can't, because they go where I go.
 
 I think about the man at the bus stop on Day 1 with his heavy bag and borrowed courage. I'd tell him: you were right to be frightened. You were also stronger than you knew. And don't stand by the sandbags next time. Go to him.
 

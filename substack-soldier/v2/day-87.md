@@ -2,7 +2,7 @@
 
 # Day 87 — Dispatch: What's Left
 
-I've been trying to put together a short statement of what's left, after eighty-seven days. Not a manifesto. More like the list at the bottom of a rucksack, the stuff still there when everything else has been unpacked.
+I've been trying to put together a short statement of what's left, after eighty-seven days. It's no manifesto, more the list at the bottom of a rucksack, the stuff still there when everything else has been unpacked.
 
 I believe in small decency. I used to think it was a pleasant extra. I now think it's the structure the world hangs on. A cup of tea put in the right hand at the right moment holds up more than most treaties.
 

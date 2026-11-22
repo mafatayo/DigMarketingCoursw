@@ -10,9 +10,9 @@ I woke to a silence so deep I thought I'd gone deaf. I lay there with my eyes op
 
 I stood there. Snow absorbs sound, I've been told, the little hollows in each flake swallow it. I'd known it once as a technical fact, setting up microphones. Now I felt it in my chest. The war seemed to have been taken somewhere far off and put to sleep.
 
-It doesn't last. By midday, tracks. Vehicle ruts. A black scar where someone threw stove ash. Boots wandering in a drunk line to the latrine. But for an hour the field was a clean page.
+It doesn't last. By midday there are tracks and vehicle ruts. A black scar where someone threw stove ash. Boots wandering in a drunk line to the latrine. But for an hour the field was a clean page.
 
-Winter slows everything. Days are short. Darkness at four. The cold takes the edge off the thinking part of the brain and we move like old men, saving every motion. We spend half the day gathering and chopping and stacking wood and we guard it like gold.
+Winter slows everything, with short days and darkness at four. The cold takes the edge off the thinking part of the brain and we move like old men, saving every motion. We spend half the day gathering and chopping and stacking wood and we guard it like gold.
 
 And yet there's a kind of peace. Long nights round the stove. Cards, stories, soup. Vira has taken up knitting, badly, and produces a long gray rectangle she calls "a scarf for someone with a very long neck." Zenko reads aloud with the Colonel's head on his foot. Yaroslav has begun, very shyly, to play the guitar.
 

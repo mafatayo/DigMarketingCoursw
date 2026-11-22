@@ -10,7 +10,7 @@ Six people, one hole. I'll go through them quickly, because that's how they were
 
 **Bohdan.** Twenty-two. Third-year computer science, until it wasn't. He flies the small drones, our eyes, and he's lost four this week. I mean lost. Shot, jammed, dropped in a field. Each one is someone's donation, a month of somebody's wages in a plastic frame, and he writes every loss in a notebook with the date and apologizes to it. Out loud. "Sorry. Sorry. Good girl." I've watched it happen.
 
-**Halyna.** Medic. Forty-four, a nurse from Lviv for twenty years, hands like a pianist's, voice like a prison warden's when anyone skips washing. Her kit sits by the door and she checks it every night. Not because something's missing. Because she can't not.
+**Halyna.** Medic. Forty-four, a nurse from Lviv for twenty years, hands like a pianist's, voice like a prison warden's when anyone skips washing. Her kit sits by the door and she checks it every night, whether or not anything has moved, because she can't not.
 
 **Zenko.** Forty-one. History teacher. Mobilized three months ago, still calls everyone "gentlemen," including the women, who've asked him to stop. He wears two scarves. He's the only one of us who actually reads the instructions on things.
 

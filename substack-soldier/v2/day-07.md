@@ -30,7 +30,7 @@ They were back in half an hour, no blanket. Halyna washed her hands at the bucke
 
 "Eggs," said Motor, from the corner, in his regular voice. "Someone traded for eggs. Sit."
 
-We sat. We ate three eggs each. It wasn't a good breakfast. It was a breakfast.
+We sat and ate three eggs each. It wasn't a good breakfast; it was a breakfast.
 
 ---
 

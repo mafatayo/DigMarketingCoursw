@@ -16,7 +16,7 @@ We talked, a great deal. We played cards for hours. Halyna read from the dragon 
 
 I'll tell you why they ordered it, as far as I can. Everyone understood by the second night. Something was coming, on the line, not necessarily at us. And the quiet had a different feel. No phones, no radio chatter beyond what was needed, a hundred men holding their breath in a hundred holes. The silence was crowded. In the evening a flare went up, far off, white, and nobody said a word, and for a minute nobody moved.
 
-On the third night, a remarkable thing: nobody wanted their phones back. Not exactly. We wanted the *people* in them. But the hum had gone out of us, and we were calmer, and I noticed without saying so.
+On the third night, a remarkable thing: nobody wanted their phones back, only the *people* in them. But the hum had gone out of us, and we were calmer, and I noticed without saying so.
 
 On the fourth morning Motor opened the box. Phones came out one by one and lit up like fireflies. A wave of buzzing. Thirty-seven messages for me. Eleven from Katya. One from Sonya, a voice note, a small bright voice: "Papa, I lost a tooth."
 

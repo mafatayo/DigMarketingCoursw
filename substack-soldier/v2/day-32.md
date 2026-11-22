@@ -8,7 +8,7 @@ At the back of the dugout, behind a hanging blanket, there's a door laid across 
 
 He sits there for hours with his tongue between his teeth, bent over a motor the size of a thumb, humming something that isn't a song.
 
-I'd never really watched him work. Today I did. The twitchy apologetic kid disappears. His hands go still. His eyes sharpen. When a wire has to go somewhere, he puts it there with a patience that makes Halyna's hands look rough.
+I'd never really watched him work. Today I did. The twitchy apologetic kid disappears; his hands go still and his eyes sharpen. When a wire has to go somewhere, he puts it there with a patience that makes Halyna's hands look rough.
 
 "What are you doing?"
 

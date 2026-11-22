@@ -22,9 +22,7 @@ Imagine a list of names in a notebook that grows faster than you wanted.
 
 Imagine a boy, twenty-three, who apologized to every machine he lost. Imagine standing forty feet from him and not being able to walk.
 
-Imagine a woman you've never met getting into a car and driving seven hours to put a bowl of soup in your hands, and refusing to give her name.
-
-Imagine being scared, and doing the next thing.
+Imagine a woman you've never met getting into a car and driving seven hours to put a bowl of soup in your hands, and refusing to give her name. Imagine being scared, and doing the next thing.
 
 Imagine missing someone so much it's a physical object, a stone in your pocket, and you wouldn't put it down if you could.
 

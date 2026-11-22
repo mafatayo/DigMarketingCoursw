@@ -4,9 +4,7 @@
 
 I've been too polite about this: some of us are very angry about the people who steal.
 
-It isn't constant. Most days it sits low like coals under ash. But now and then something blows on it. Last week it was a news story, a rumor probably, though not necessarily false, about equipment gone missing, contracts that didn't make sense, men in good coats getting rich while a boy in a hole can't find a spare battery.
-
-Motor said nothing. I watched his jaw.
+It isn't constant. Most days it sits low like coals under ash. But now and then something blows on it. Last week it was a news story, a rumor probably, though not necessarily false, about equipment gone missing, contracts that didn't make sense, men in good coats getting rich while a boy in a hole can't find a spare battery. Motor said nothing. I watched his jaw.
 
 "I can take almost anything," said Yaroslav. "The cold. The mud. The noise. Being scared. What I can't take is knowing someone's making money from this."
 
@@ -16,7 +14,7 @@ Motor said nothing. I watched his jaw.
 
 "No. It never has."
 
-I'm not naive. Any large machine has people who skim it. But there's a particular sourness in seeing it, even a rumor of it, from the bottom. A stolen winter jacket isn't a number. It's a man's hands, blue at the knuckles. A missing tourniquet isn't a line in a ledger. It's Halyna's face when she runs out.
+I'm not naive. Any large machine has people who skim it. But there's a particular sourness in seeing it, even a rumor of it, from the bottom. A stolen winter jacket is a man's hands, blue at the knuckles. A missing tourniquet is Halyna's face when she runs out.
 
 And she did run out, once, two weeks ago. A particular size of bandage, the ones for the larger wounds. She counted three times. She stood in the middle of the dugout looking at the empty space on the shelf, and Motor said, "We'll get more." And she said, "I know. But I had to decide who," and went outside.
 

@@ -21,7 +21,7 @@ I miss Katya so much it sits in my teeth. I miss Sonya's small voice on the phon
 
 There's something else, harder to name. A kind of clarity. For thirty days I haven't worried about my email, or my rent, or whether I said the clever thing. The problems have shrunk to their true size. Is there water? Is there a dry sock? Is my friend all right? It's terrible, and it's clean.
 
-I'd also like to say, because I haven't, that I'm frightened. Not all the time. It's a lower, steadier thing, a hum under everything. I keep waiting for it to stop and Motor says it doesn't, you just get used to the volume.
+I should say, because I haven't, that I'm frightened. Most of the time it's a lower, steadier thing, a hum under everything. I keep waiting for it to stop and Motor says it doesn't, you just get used to the volume.
 
 Zenko came up and stood beside me, wrapped in both scarves. "A month," he said.
 
@@ -47,7 +47,7 @@ Dear Danylo, with the bag,
 
 You're about to walk past a bakery. You think the smell will follow you. It will. Keep it.
 
-You think you're not brave. You're right. Don't worry about it. Courage here isn't what you imagined. It's carrying water. It's saying "I'll take the next watch."
+You think you're not brave. You're right. Don't worry about it. Courage here is carrying water and saying "I'll take the next watch," nothing like what you imagined.
 
 You'll be afraid a lot. It won't go away. You'll learn to walk next to it, like a dog.
 

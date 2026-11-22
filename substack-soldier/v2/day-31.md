@@ -28,13 +28,13 @@ He sat down heavily. He flies little machines all day. He knows how they handle,
 
 It went away after eleven minutes, as if bored. We waited another half hour anyway. Nobody spoke. Halyna put the kettle on very softly, as if the sound of the lid might call it back.
 
-I've been trying to understand why the drone is worse than anything else. I think it's that it doesn't hate you. It's a patient eye, a small cold intelligence, and what you fear isn't it. It's the person at the other end, at a screen, with a joystick and a cup of coffee, deciding.
+I've been trying to understand why the drone is worse than anything else. I think it's that it doesn't hate you. It's a patient eye, a small cold intelligence, and the thing to fear is the person at the other end, at a screen, with a joystick and a cup of coffee, deciding.
 
-An hour later one of them did decide. Not about us. About the next position, five hundred meters away. We heard it, a short flat bang, not very big. I stood in the doorway and counted the seconds until the net came alive. Then a voice, calm, asking for a medic. Halyna was gone before it finished.
+An hour later one of them did decide, though not about us: about the next position, five hundred meters away. We heard it, a short flat bang, not very big. I stood in the doorway and counted the seconds until the net came alive. Then a voice, calm, asking for a medic. Halyna was gone before it finished.
 
 She came back at dusk and went straight to the bucket. When Bohdan asked, she said, "He'll keep the foot." That was the only thing she said all evening.
 
-Later Bohdan flew a patrol of his own. I stood behind him and watched the little screen. A road. A line of trees. A bright flat sky. It's the same machine, the same thing. We're no different. This is what the century has done to all of us.
+Later Bohdan flew a patrol of his own. I stood behind him and watched the little screen. A road, a line of trees, a bright flat sky. It's the same machine, the same thing. We're no different. This is what the century has done to all of us.
 
 ---
 

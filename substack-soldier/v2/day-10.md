@@ -8,7 +8,7 @@ You don't say it. Vira threw a spoon. It missed, because she's a radio operator 
 
 It was quiet, though. By the standard of the last ten days, it was nearly silent. No thudding in the ground, no engines, just wind and a faint dripping and Motor's four bars drifting across the room.
 
-Quiet isn't peace. I've learned that. It's attention. Everyone in the dugout was hyper-alert, like people in a house where something has creaked and nobody's sure what. Halyna kept looking up at the ceiling. Zenko read the same page of his book three times. When it's loud, you're busy. You react. The body takes over. When it's quiet, the mind has room, and the mind is a much worse place to be.
+Quiet isn't peace, I've learned; it's attention. Everyone in the dugout was hyper-alert, like people in a house where something has creaked and nobody's sure what. Halyna kept looking up at the ceiling. Zenko read the same page of his book three times. When it's loud you're busy, you react, the body takes over. When it's quiet, the mind has room, and the mind is a much worse place to be.
 
 Around noon I went to check the line and heard something I couldn't place. A scratching. A tick, faint, regular, like a clock in another room. I stood there for a full minute with the hair up on my arms before I found it: a loose wire against a post, tapping in the wind. Tick. Tick. Tick.
 
@@ -20,7 +20,7 @@ Vira looked at my face when I got back. "Wire?"
 
 "Everyone gets the wire," she said. "Mine was a plastic bag."
 
-The evening was loud again. Far-off, a rolling sound like furniture moving upstairs. Everyone in the dugout relaxed. Shoulders came down. Bohdan opened a book. The ordinary had come back, and the ordinary, God help us, was a relief.
+The evening was loud again. Far-off, a rolling sound like furniture moving upstairs. Everyone in the dugout relaxed, shoulders coming down, and Bohdan opened a book. The ordinary had come back, and the ordinary, God help us, was a relief.
 
 Later, on the steps, I did the thing I've started doing, which is listening to it like I used to listen to a room. Outgoing, three, four. A long gap. Then, further off than I'd expect, a sound like a heavy door slamming in a very big building. I counted. I couldn't help it. You're not supposed to count other people's.
 

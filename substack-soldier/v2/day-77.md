@@ -14,7 +14,7 @@ I've learned the names: the larks, the wagtails, the little gray warblers in the
 
 "They are the most reliable creatures in Europe."
 
-There's something about birds I'd never thought of. They don't care. I mean it with love. They don't read the news. A lark sings because it's spring and its mate is near and the sun is up. Nothing in its small brain is about us. It's the most restful thing in the world.
+There's something about birds I'd never thought of. They don't care, and I mean that with love; they don't read the news. A lark sings because it's spring and its mate is near and the sun is up. Nothing in its small brain is about us. It's the most restful thing in the world.
 
 Last Tuesday I found a nest in a crushed helmet. A rusted helmet, discarded, half sunk in the grass. A small round cup of dry stems and feathers tucked inside, four tiny speckled eggs. I knelt in the wet grass looking at them.
 

@@ -52,7 +52,7 @@ I asked, as casually as I could, why she did it. How many trips? How much of her
 
 "Seven, today. The bridge." She patted my arm. "I sit at home and think about you. I cook. I think, this will go in somebody's mouth. That's what a mother does. It's the same."
 
-It was a flat, unashamed, practical love with no reward in it, and I think it's the strongest force I've met out here. It can't be shot at. It doesn't need a medal. It only needs a pot.
+It was a flat, unashamed, practical love with no reward in it, and I think it's the strongest force I've met out here. It can't be shot at, it doesn't need a medal, it only needs a pot.
 
 When she left she gave each of us a hard look and a hard pinch on the cheek, even Motor, who bore it like a statue. At the car she turned, pointed at the dugout, and said in the tone of a general: "Eat. Wash. Wear a hat."
 

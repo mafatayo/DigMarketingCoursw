@@ -24,9 +24,7 @@ I stood at the post in the cold with the phone against my cheek and my breath fo
 
 I didn't. It's the most common mistake we make, I think, and I made it on purpose.
 
-If I tell her, she'll carry it. She'll carry it into the night, to the bakery, to the school gate, to her mother's table. She'll hold it because she loves me and she'll never put it down. I'd be handing her a stone across four hundred kilometers and she couldn't do one thing about it. And she's already carrying so much. She's carrying the corridor.
-
-So I gave her a smaller true thing.
+If I tell her, she'll carry it. She'll carry it into the night, to the bakery, to the school gate, to her mother's table. She'll hold it because she loves me and she'll never put it down. I'd be handing her a stone across four hundred kilometers and she couldn't do one thing about it. And she's already carrying so much. She's carrying the corridor. So I gave her a smaller true thing.
 
 "I'm tired. More than I've ever been. I'm frightened sometimes. A friend of mine died. I won't tell you more than that. I'm with good people. They look after me. I've got a dog and a mug and a woman who reads dragon stories. I'm all right, Katya. Not fine. All right."
 

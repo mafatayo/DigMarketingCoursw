@@ -12,9 +12,7 @@ Static. Then a handful of answers, drowsy, curious. "Go ahead, Magpie." "We're l
 
 She cleared her throat. I saw her glance round the dugout, almost shy. Then she began to sing.
 
-It was a carol. The old one, the one every child in the country learns. A simple tune, climbing slowly, with a line that falls like a snowflake. She sang it unaccompanied in her low rough true voice into the microphone, and the words went out across the black frozen fields.
-
-I stopped breathing. Halyna sat up.
+It was a carol. The old one, the one every child in the country learns. A simple tune, climbing slowly, with a line that falls like a snowflake. She sang it unaccompanied in her low rough true voice into the microphone, and the words went out across the black frozen fields. I stopped breathing. Halyna sat up.
 
 By the second verse the net had changed. Someone from the next position had joined in, faintly, a man's voice, cracked and sweet. Then another. A woman, further off, a lovely high note. Then a whole choir, thin and scattered and astonishing, strangers coming through the static from a dozen dugouts, across miles of snow, none of them seeing each other, all singing the same song.
 

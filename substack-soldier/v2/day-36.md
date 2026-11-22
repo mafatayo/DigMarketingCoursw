@@ -20,7 +20,7 @@ I sat down next to him. I didn't talk. After a while he said, "I thought I'd be 
 
 "But I couldn't feel my hands. After. I thought they'd come off. I thought, those aren't mine."
 
-I nodded. I'd had the same thing. I told him.
+I nodded, I'd had the same thing, and I told him.
 
 "How do you stop it?"
 
@@ -38,7 +38,7 @@ That night neither of us slept. At two he whispered from the bunk across from mi
 
 "Good," he said. "Me too. I just wanted to check it wasn't only me."
 
-There was a thing I didn't say. I'd looked at him in the light of the lamp, the thin neck and the pale wrists, and thought, with a clarity that felt like cold water, that he was the one they'd go for. Not because he was weak. Because he flew. Every unit on this front understands that the man at the screen is the first target. I'd known it as a fact. Now it had a face.
+There was a thing I didn't say. I'd looked at him in the light of the lamp, the thin neck and the pale wrists, and thought, with a clarity that felt like cold water, that he was the one they'd go for. He flew, and that was reason enough. Every unit on this front understands that the man at the screen is the first target. I'd known it as a fact. Now it had a face.
 
 I lay there and didn't say any of it.
 

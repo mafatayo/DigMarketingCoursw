@@ -40,6 +40,6 @@ Oleh left at dawn. I stood on the steps and watched his battered truck, loaded t
 
 Water. Food. Gas for the stove. Fuel for the generator. Batteries. Mail. Medicine. Spare parts. Boots. Dry socks. New faces. Information. Morale. Someone to say thank you.
 
-A war isn't only a fight. It's a very large, very fragile delivery system. Every mile of that road is somebody's courage.
+A war is also a very large, very fragile delivery system. Every mile of that road is somebody's courage.
 
 Thank the person who does the logistics. Out loud. Today.

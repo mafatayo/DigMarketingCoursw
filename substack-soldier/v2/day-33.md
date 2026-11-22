@@ -28,9 +28,7 @@ The ditch was brutal. The ground rang under the spade like iron. After ten minut
 
 That evening, when I got in, Halyna had my feet in her hands before I'd sat down. She held them until they stopped hurting. She rubbed them as she'd rub a child's. Then she said, "Good," and looked at the next man. She was counting toes. It's the first time she's ever done it that openly.
 
-At night the stove ran hot and the dugout smelled of soup and wet wool. We peeled off the outer layers and held our hands to it, fingers returning in a sharp bright pain that felt like being forgiven.
-
-Winter had barely started.
+At night the stove ran hot and the dugout smelled of soup and wet wool. We peeled off the outer layers and held our hands to it, fingers returning in a sharp bright pain that felt like being forgiven. Winter had barely started.
 
 I thought, not for the first time, about the other side. About men in holes like this one, a few hundred meters off, counting their own toes. I couldn't make myself hate them, in that minute. I don't know what that says about me. Probably only that I was warm.
 

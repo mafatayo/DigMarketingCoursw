@@ -30,7 +30,7 @@ Then I noticed something. Everyone was shouting. Everyone was red in the face an
 
 Because the front has no room for pointless arguments. Every conversation is about something: supplies, weather, plans, who's on watch. Fighting about nothing felt almost luxurious. It felt like peacetime.
 
-At one point, in the middle of it, I saw Motor glance up at the beam, at the sound of something far off, and then back at the table, and carry on arguing. He'd measured it, filed it, and returned to the dispute. It took half a second. I understood that this was why he was loud. Not because the goal mattered. Because he was choosing, deliberately, which noise to listen to.
+At one point, in the middle of it, I saw Motor glance up at the beam, at the sound of something far off, and then back at the table, and carry on arguing. He'd measured it, filed it, and returned to the dispute. It took half a second. I understood that this was why he was loud: the goal didn't matter, he was choosing which noise to listen to.
 
 Around eleven he said, "Fine. It was in."
 

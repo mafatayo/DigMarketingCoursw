@@ -26,7 +26,7 @@ I'd rehearsed it on the truck. A careful sentence. I said, "Dmytro," and nothing
 
 "No," he said. "No, he's on a patrol, he's—he's busy. That's why he didn't come."
 
-Halyna sat on the bed. She took his hand. She said it. She said it very simply, in the voice she uses, with his name in it and the word and the day. She didn't use *passed* or *lost.* She told him the way she'd want to be told.
+Halyna sat on the bed and took his hand and said it. She said it very simply, in the voice she uses, with his name in it and the word and the day. She didn't use *passed* or *lost.* She told him the way she'd want to be told.
 
 For a long moment he didn't move. Then he said, in a very small voice, "He apologized to the drones. Did you know that? In the room. At the university. He used to apologize to the printer."
 
@@ -52,6 +52,6 @@ I didn't know what to say.
 
 Recovery is slow, and it's a job. Visitors help: bring jokes, bring oranges. Don't pity; ask what's needed and listen. The nurses are saints.
 
-Everyone's terrified of going home. Not of the pain. Of being a burden.
+Everyone's terrified of going home. They fear being a burden more than the pain.
 
 Telling someone is the worst thing I've done here. I'd do it again.

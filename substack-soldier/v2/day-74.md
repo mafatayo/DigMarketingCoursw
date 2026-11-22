@@ -26,9 +26,7 @@ Vira was fierce about it. "I don't need to be famous. I need to be *remembered.*
 
 We laughed, but it stayed with me. And I'll tell you the part I don't like. Since Bohdan I've been catching myself keeping score. *They have a screen, we have a hole.* *They have a Tuesday.* I know it's unfair. It rises in me like acid, at night, and I don't invite it. I think it's what happens to a person who is far from home and tired and has put a name in a notebook.
 
-So I've made a rule. I won't be angry at the tired. I'll tell the small true things. A dog. A mug. A carol over the radio. If one person somewhere stops scrolling for a minute and thinks, *oh, they're still there,* I count it as victory.
-
-You're here. That's the proof. Thank you.
+So I've made a rule. I won't be angry at the tired. I'll tell the small true things. A dog. A mug. A carol over the radio. If one person somewhere stops scrolling for a minute and thinks, *oh, they're still there,* I count it as victory. You're here. That's the proof. Thank you.
 
 I said that last part more quietly than I meant, to the page, in the dark, and the Colonel opened one eye.
 

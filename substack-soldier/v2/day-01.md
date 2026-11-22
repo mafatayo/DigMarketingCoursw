@@ -12,7 +12,7 @@ The voice was young and polite and a little bored. He gave me an address, a time
 
 Katya was standing in the kitchen doorway by the time I hung up. She hadn't been woken by the phone. She doesn't sleep properly anymore, nobody does, you just lie there in shifts. She looked at me and I looked at her and neither of us said the word.
 
-I put the kettle on. I can't tell you why. My hands wanted a job. She got a second cup down without being asked and we drank standing up, like people waiting for a bus, listening to the fridge.
+I put the kettle on, I can't tell you why; my hands wanted a job. She got a second cup down without being asked and we drank standing up, like people waiting for a bus, listening to the fridge.
 
 Sonya was asleep in the corridor. That's where she sleeps now, on the camping mattress we drag out around midnight, because the corridor has no windows. She's six and she has opinions about which wall is the good wall. She sleeps with one foot out of the blanket, always has, and I stood over her for longer than I should have, and I did not wake her. I told myself later that it was kindness. It might have been that I didn't trust my face.
 

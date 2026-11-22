@@ -24,7 +24,7 @@ Taras smiled. "I'm leaving the guitar."
 
 "It's *ours,*" he said. "Somebody has to play it."
 
-He looked at us one by one, as if memorizing. I've watched men do it. A slow deliberate sweep, the eyes touching each face. It isn't sentimental. It's a kind of insurance.
+He looked at us one by one, as if memorizing. I've watched men do it. A slow deliberate sweep, the eyes touching each face. I think it's a kind of insurance.
 
 When it came to me, he held my eyes a moment. "Look after the dog."
 

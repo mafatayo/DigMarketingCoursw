@@ -22,7 +22,7 @@ You'd think aid is about goods. The goods are almost the least of it. A pallet f
 
 There's frustration too. We hear about promises, delays, long debates in distant rooms. What we need most sometimes comes last. What we need least comes first. Bohdan once received eleven crates of batteries nothing here uses.
 
-The pallet didn't have everything. I looked for it. Motor looked for it. Under the hats there was a small case of the one item that mattered most, and it was marked *limited,* and when Motor counted it he did the sum, and I watched his lips move. He said nothing. But he looked up at the sky and I knew what he was counting, which was nights.
+The pallet didn't have everything; I looked for it and so did Motor. Under the hats there was a small case of the one item that mattered most, and it was marked *limited,* and when Motor counted it he did the sum, and I watched his lips move. He said nothing. But he looked up at the sky and I knew what he was counting, which was nights.
 
 Then he lifted a woolen hat from the sack, turned it over in his big hands, and put it on. It was too small. It sat on top of his head like a cherry on a cake. He regarded us without expression.
 

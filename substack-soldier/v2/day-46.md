@@ -4,7 +4,7 @@
 
 Yaroslav lost his bag.
 
-Not in any exciting way. We were moving supplies between positions, a short muddy errand, and somewhere between the truck and the dugout his backpack slipped off the tailgate. By the time he noticed, a quarter of an hour later, the track behind us was empty. A long brown ribbon of ruts and nothing else.
+It happened dully, the way these things do. We were moving supplies between positions, a short muddy errand, and somewhere between the truck and the dugout his backpack slipped off the tailgate. By the time he noticed, a quarter of an hour later, the track behind us was empty. A long brown ribbon of ruts and nothing else.
 
 He came in white-faced. "I lost it. I lost everything."
 

@@ -10,7 +10,7 @@ By dinner everyone had heard it. By evening everyone believed it. By midnight ev
 
 Near midnight he called us together. "Listen. I know nothing. Nobody's told me anything. If it's true, good. If it isn't, don't let me see you sulk."
 
-It was hard to say. He saw the faces. He said it anyway.
+It was hard to say, and he said it anyway, having seen the faces.
 
 This is the cruelest thing here, I think. Not the shelling. The hope. A loose tooth you can't stop touching. A rumor of rest does something strange to the body, suddenly you notice every ache. The cold gets colder. You've been living with it all along, but now you know there's another world within reach, and the gap hurts.
 
@@ -26,7 +26,7 @@ I also thought, for the first time, about the units on either side of us. People
 
 In the morning Motor handed out chores as usual. "Buckets. Boots. Firewood." Bohdan, red-eyed, looked up and half-smiled. We went to work.
 
-Rest isn't a place, I decided. It's whatever you can steal from the day.
+Rest, I decided, is whatever you can steal from the day.
 
 ---
 

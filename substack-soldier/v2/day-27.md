@@ -2,9 +2,7 @@
 
 # Day 27 — Dispatch: Mama
 
-The message came at four in the afternoon, which is a strange hour for bad news. I'd expected it at night. Instead it was a bright flat gray afternoon with Bohdan arguing about socks in the corner and the kettle just starting.
-
-My brother. Four words. *Call me. It's Mama.*
+The message came at four in the afternoon, which is a strange hour for bad news. I'd expected it at night. Instead it was a bright flat gray afternoon with Bohdan arguing about socks in the corner and the kettle just starting. My brother. Four words. *Call me. It's Mama.*
 
 I went up the steps with shaking hands. The signal's bad in the dugout, you have to stand by the post at the far end, one bar flickering. I dialed. It rang six times.
 
