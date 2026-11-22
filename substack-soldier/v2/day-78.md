@@ -14,7 +14,7 @@ It was close, whatever it was. I heard the crack and the long whine after it, an
 
 It was Yaroslav, from the trench. "Lieutenant! *Lieutenant!*"
 
-I found out later what it was. A piece of something, nothing dramatic, a fragment the size of a coin. It had gone through his upper arm and then, on its way, taken part of his shoulder. He was conscious the whole time. That's what I want you to know. He was sitting in the trench with his back against the wall and his face gray and his left arm in an arrangement I won't describe, and he was giving Yaroslav instructions in a steady voice.
+I found out later what it was. A piece of something, nothing dramatic, a fragment the size of a coin. It had gone through his upper arm and then, on its way, taken part of his shoulder. He was conscious the whole time. He was sitting in the trench with his back against the wall and his face gray and his left arm wrong in a way I'll leave out, and he was giving Yaroslav instructions in a steady voice.
 
 "Put pressure here. No. Harder. You can't hurt it. Do the tourniquet, you know how, Halyna showed you. Do the time."
 
@@ -34,7 +34,7 @@ They took the lieutenant out on a stretcher, with Oksana, the girl with the pony
 
 "Yes," said Motor. He held the boy's good hand a second. "There will be a next time, Lieutenant. You'll do it right."
 
-The van went out. We stood in the brown haze with the larks silent, and nobody spoke for a long time.
+The van went out. We stood in the brown haze with the larks silent, and nobody spoke until Motor lit the stove.
 
 He'll live. I know that because we heard that evening. He'll lose some use of the arm. He'll be a long time in the ward. He was twenty-four and he'd been here forty days.
 

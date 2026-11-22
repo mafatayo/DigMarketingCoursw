@@ -12,7 +12,7 @@ Silence. Even the Colonel seemed to listen.
 
 "I mean it. Not what you'll feel. What you'll do on a Monday. At nine in the morning. When you wake in your own bed and nobody's telling you where to go."
 
-Nobody answered. I think we'd each assumed, quietly, that the question was never going to be ours. That the war would end, and life would resume, by some obscure magic, exactly where we'd left it.
+I think we'd each assumed that the question was never going to be ours. That the war would end, and life would resume, by some obscure magic, exactly where we'd left it.
 
 "I was a welder," Ihor said. "I assumed I'd weld. Then my hands didn't like the heat. Then my back didn't like the angle. Then I realized I had no idea who I was without the war or the welding. I'm fine now. I teach apprentices. But it took two years of being miserable to find out."
 
@@ -22,7 +22,7 @@ Nobody answered. I think we'd each assumed, quietly, that the question was never
 
 The conversation drifted. But I saw the effect all week. Zenko, drafting what might be the first page of a book. Vira asking Motor whether he'd ever thought about running a bus depot, and Motor laughing so hard he had to wipe his eyes. Halyna saying she'd like "a very small clinic in a very small village with a very large garden."
 
-And Yaroslav, quietly, asking whether anybody knew what you did for the part of the list that was about someone else. He didn't say who. We all knew. Ihor, who'd stayed on for tea, looked at him a long time.
+And Yaroslav asking whether anybody knew what you did for the part of the list that was about someone else. He didn't say who. We all knew. Ihor, who'd stayed on for tea, looked at him over his cup.
 
 "You carry it," he said. "That's all. I carry mine. It gets lighter. It doesn't leave."
 

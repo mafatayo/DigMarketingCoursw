@@ -8,7 +8,7 @@ They imagine fiery debates in lamplight, fists on tables. There are some. But mo
 
 Last night it arrived as Yaroslav. He'd been listening to something on his phone, a clip of a man in a good suit making a promise, and took out one earbud and said flatly, "I wonder how many of them have ever carried water."
 
-Nobody answered. Motor's mustache twitched.
+Motor's mustache twitched.
 
 "It's not fair," said Vira at last. "They have a different job."
 

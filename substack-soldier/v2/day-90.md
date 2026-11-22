@@ -24,7 +24,7 @@ He didn't answer. He lifted his chin. Motor, behind her, who'd taken it down fro
 
 "They are," said Motor.
 
-I opened the green notebook, the one with the sorries, last week, and turned to the last blank page. I want to tell you what I wrote. I wrote the date and, under it, in my own hand, not neatly: *Not lost.* Then I drew a small fox. I'm not sure what it means. I think it means somebody should keep counting.
+I opened the green notebook, the one with the sorries, last week, and turned to the last blank page. Here's what I wrote: the date and, under it, in my own hand, not neatly: *Not lost.* Then I drew a small fox. I'm not sure what it means. I think it means somebody should keep counting.
 
 I've been more afraid than I've ever been. I've also been more loved. I didn't expect the second.
 

@@ -16,7 +16,7 @@ I showed it to the Colonel. I know that's absurd. I held it up and said, "She dr
 
 That night I wrote back, in bad English, with Bohdan checking spelling. *Dear Maria. Thank you for your letter. I am warm. I have a dog. His name is Colonel. He is very important. Your flower is on my wall. Please be kind to everyone. Please play outside. The sun is good. Love, Lys.* I drew a fox beside the dog.
 
-Then I stopped, with the pen over the page, because I realized I'd written *I am warm* and it was a lie. I was sitting in a hole with the stove out because Vira's schedule said no smoke. I was wearing four layers. I could see my breath. But I'd written *warm* because that's what she'd hoped, and it seemed like a small thing to give her.
+Then I stopped, with the pen over the page, because I'd written *I am warm* and it was a lie. I was sitting in a hole with the stove out because Vira's schedule said no smoke. I was wearing four layers. I could see my breath. But I'd written *warm* because that's what she'd hoped, and it seemed like a small thing to give her.
 
 I thought about it for a while. There's a lie you tell your wife, to carry something for her. There's a lie you tell a child, so she can keep a corner of the world soft. They're not the same lie. I decided to leave it.
 

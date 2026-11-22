@@ -30,7 +30,7 @@ Imagine missing someone so much it's a physical object, a stone in your pocket, 
 
 Imagine being good at something you never expected to be good at, and wishing with your whole heart you'd never had to learn it.
 
-That's the closest I can come. If you're someone who's never been, who watches from a distance, I want you to know it isn't a failure of yours. Don't feel guilty. Don't feel you owe a performance of suffering. Stay human. Stay curious. Stay kind. Be a person who, if it ever came to it, would carry the water.
+That's the closest I can come. If you're someone who's never been, who watches from a distance: it isn't a failure of yours. Don't feel guilty. Don't feel you owe a performance of suffering. Stay human. Stay curious. Stay kind. Be a person who, if it ever came to it, would carry the water.
 
 ---
 

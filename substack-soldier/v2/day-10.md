@@ -12,7 +12,7 @@ Quiet isn't peace. I've learned that. It's attention. Everyone in the dugout was
 
 Around noon I went to check the line and heard something I couldn't place. A scratching. A tick, faint, regular, like a clock in another room. I stood there for a full minute with the hair up on my arms before I found it: a loose wire against a post, tapping in the wind. Tick. Tick. Tick.
 
-I laughed. Out loud, alone, in a field. I laughed until my eyes watered, and then I sat on a sandbag and stopped, because I realized how thin I'd been stretched to be this undone by a piece of wire.
+I laughed. Out loud, alone, in a field. I laughed until my eyes watered, and then I sat on a sandbag and stopped, because that's how thin I'd been stretched, to be undone by a piece of wire.
 
 Vira looked at my face when I got back. "Wire?"
 

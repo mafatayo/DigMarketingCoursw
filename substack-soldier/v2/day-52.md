@@ -22,7 +22,7 @@ I'd prepared an answer. Something grand. I opened my mouth, looked at the lens, 
 
 "That we're ordinary," I said. "That's all. We had a boy here who was twenty-three and apologized to machines. He died on Tuesday. I'm not going to say how. He was a person. We're all people. We're tired. We're doing something very hard and we'd like to be home."
 
-The woman nodded. She wrote nothing. She said, quietly, "That's what I came for."
+The woman nodded. She wrote nothing. She said, "That's what I came for."
 
 After they left, the dugout was subdued, as if a bright light had been shone on a delicate room and then turned off. Motor swept the floor, which he never does. Halyna made tea. Nobody mentioned the camera.
 

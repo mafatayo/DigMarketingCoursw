@@ -10,13 +10,13 @@ Nobody moved.
 
 She opened to the first page and read, in her flat radio voice, and I'll give you the shape. A date. A number. A word. *Lost. Jammed. Shot. Lost. Crashed in field, recovered. Lost.* Fifty-three, then the new ones. Fifty-four. Fifty-five. Fifty-six. She read each as he'd have said it, without comment.
 
-Under most of them, a small note. *Wind.* *Cold, battery.* *Their jammer.* *My fault — too long up.* A few had a second word. *Sorry.* It was written the same way every time, small and neat, the way you'd sign a card.
+Under most of them, a small note. *Wind.* *Cold, battery.* *Their jammer.* *My fault — too long up.* A few had a second word. *Sorry.* It was written the same way every time, small and neat, like a signature on a card.
 
 She got to the end and stopped. There was one more line, on the last page, in the same neat hand. Not a loss. A date, and next to it, a drawing: a very small fox, whiskers and all.
 
-Nobody said anything. She turned the page. It was blank.
+She turned the page. It was blank.
 
-"Fifty-seven," said Zenko quietly. "That's the number. Fifty-six machines, and then..." He didn't finish.
+"Fifty-seven," said Zenko. "That's the number. Fifty-six machines, and then..." He didn't finish.
 
 It was Motor who spoke. "Lieutenant."
 
@@ -36,7 +36,7 @@ I didn't breathe.
 
 She stood, went to the stove, and, standing with her back to us, cried for the first time since I'd known her. Not loud. A thin shaking breath, her hands flat on the hot metal. Halyna was behind her in two steps. Nobody else moved.
 
-I went and sat with the Colonel in the corner, and he leaned into me, and for a long time I looked at the shelf where the mug with the cartoon cat stood beside a razor and a candle stub and a small wooden swallow.
+I went and sat with the Colonel in the corner, and he leaned into me, and I looked at the shelf where the mug with the cartoon cat stood beside a razor and a candle stub and a small wooden swallow.
 
 ---
 

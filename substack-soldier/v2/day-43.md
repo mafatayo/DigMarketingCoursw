@@ -36,7 +36,7 @@ Motor looked at the generator, at her, at the sky. He took his cap off. "Madam. 
 
 "Especially the dog."
 
-We charged everything. Every phone, every radio. Zenko charged a tiny mp3 player nobody knew he owned and played Bach, very quietly, in the corner, for an hour.
+We charged everything. Every phone, every radio. Zenko charged a tiny mp3 player nobody knew he owned and played Bach in the corner, for an hour.
 
 ---
 

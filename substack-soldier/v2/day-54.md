@@ -6,7 +6,7 @@ Taras, the guitar man, is being transferred.
 
 He came to tell us at dusk, in his big coat, long hands in his pockets. His unit's being moved. A different sector, a different job. Orders came down that morning. He has until tomorrow.
 
-He stood at the top of the steps for a while as if reluctant to come down, then did, ducking under the blanket. "I wanted to say goodbye properly. I realized I don't know how."
+He stood at the head of the steps for a while as if reluctant to come down, then did, ducking under the blanket. "I wanted to say goodbye properly. I don't know how."
 
 Nobody did. There's no etiquette for the simple leaving of a friend. No ceremony. A truck, a bag, a nod. Next week he'll be somewhere else and so will we, and we'll write, maybe. Or we won't. I've now seen this three times in two months and I've understood that people don't say goodbye here because it might be wrong. A man who says goodbye and comes back has to explain. A man who says "see you" has nothing to retract.
 

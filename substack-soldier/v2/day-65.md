@@ -4,11 +4,11 @@
 
 The leave order came on a Monday in the middle of a lecture from Zenko on the Treaty of Hadiach.
 
-A young officer ducked in shaking snow off his cap and read from a sheet in the flat tone of a man who knows he's about to make someone's year. "Corporal Lys. Seven days. Departure tomorrow, six a.m., from the junction. Truck, then a train."
+A young officer ducked in shaking snow off his cap and read from a sheet in the tone of a man who knows he's about to make someone's year. "Corporal Lys. Seven days. Departure tomorrow, six a.m., from the junction. Truck, then a train."
 
-Nobody moved. I didn't either. I was fairly sure I'd misheard.
+I didn't move either. I was fairly sure I'd misheard.
 
-"Lys," said Motor quietly. "That's you."
+"Lys," said Motor. "That's you."
 
 "I know it's me."
 

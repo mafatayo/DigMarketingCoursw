@@ -8,7 +8,7 @@ The roof leaks into three pots. Plink, plink, plonk, three different notes. Bohd
 
 On the third evening the blanket over the door lifted and a boy came in with water running off his helmet. Nineteen, I'd have said, if he'd given me the chance to guess. Ears sticking out. A thin neck he kept tucking into his collar. A bag too big for him, and boots too new.
 
-He saluted. Nobody here salutes. He realized this about half a second after he'd done it and let his hand fall, very slowly, like a man lowering something heavy.
+He saluted. Nobody here salutes. He realized this about half a second after he'd done it and let his hand fall, very slowly, as if setting down something heavy.
 
 "Yaroslav," he said. "Replacement. I was told to report to Sergeant Motor."
 
@@ -22,7 +22,7 @@ I knew the look. I'd worn it three weeks ago. It's terror and hope and a strong 
 
 The question nobody had asked was where he'd sleep. There was one bunk. I watched the thought cross every face at once. Vira looked at Motor. Motor looked at the shelf, where the razor lay at its precise angle.
 
-It took him a long time. I could see him working it out, the way you'd see a man balancing a very full bucket.
+He took his time. I could see him working it out, like a man carrying a very full bucket.
 
 "Lowest bunk," Motor said finally. "That one."
 
@@ -48,7 +48,7 @@ I listened. A distant thud. The stove ticking. Motor's four bars, soft.
 
 I heard a small surprised laugh in the dark, and then, after a long while, the breathing changed.
 
-I lay there awake. I want to say something about replacements, about how a unit closes round a gap like water. But what I thought was: *someone made a phone call to send a nineteen-year-old to a hole in the ground, and this is what it looks like when it arrives.* It looks like a boy with a salute and a very clean pair of boots.
+I lay there awake. People say a unit closes round a gap like water. But what I thought was: *someone made a phone call to send a nineteen-year-old to a hole in the ground, and this is what it looks like when it arrives.* It looks like a boy with a salute and a very clean pair of boots.
 
 ---
 

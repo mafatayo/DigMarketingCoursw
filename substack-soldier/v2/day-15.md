@@ -16,9 +16,9 @@ Then a rustle on the left. My whole body snapped upright. The Colonel's ears wen
 
 A hedgehog, trundling along the wire. Absurdly slow. Utterly serious about its business.
 
-I breathed out. It took a long time.
+I breathed out. It took a while.
 
-I thought about Pasha then, the way you do when you let your guard down. Specifically about the fact that someone had stood on this exact spot, on this exact crate, three weeks ago, and looked at the same stars. I'd been given his watch rota. Not stated, just inherited, like a coat. And I found I wasn't afraid of dying, exactly. I was afraid of becoming a razor on a shelf, a thing people leave at the same angle because they can't decide.
+I thought about Pasha then, as you do when you let your guard down. Specifically about the fact that someone had stood on this exact spot, on this exact crate, three weeks ago, and looked at the same stars. I'd been given his watch rota. Not stated, just inherited, like a coat. And I found I wasn't afraid of dying, exactly. I was afraid of becoming a razor on a shelf, a thing people leave at the same angle because they can't decide.
 
 At two, Bohdan came up, hair wild, rubbing his eyes. "Anything?"
 

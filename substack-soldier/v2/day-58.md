@@ -28,7 +28,7 @@ Motor met her at the bottom of the steps bareheaded. "Mother."
 
 "Where's the boy," she said. "The thin one who said sorry to the plates."
 
-Nobody answered. Halyna, who'd come up behind me, said quietly, "Last week."
+Halyna, who'd come up behind me, said, "Last week."
 
 Lidiya put down the thermos. She didn't say anything for a while. Then she took her headscarf off, a thing I'd never seen her do, folded it in her hands, and bowed her gray head. She stood like that for a minute. Then she put the scarf back on and picked up the thermos.
 

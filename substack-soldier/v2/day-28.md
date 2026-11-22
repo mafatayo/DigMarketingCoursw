@@ -2,7 +2,7 @@
 
 # Day 28 — Dispatch: An Envelope
 
-The next day it was Zenko's turn, and I'd like to tell you how a man receives good news after a month of none.
+The next day it was Zenko's turn, and I watched how a man receives good news after a month of none.
 
 He was at the table in his two scarves, small round glasses on his nose, a pencil behind his ear. The mail had come at noon. Vira handed him a thin gray envelope with a child's careful handwriting on it. He frowned at it and set it aside.
 
@@ -30,7 +30,7 @@ The dugout exploded. Bohdan whooped. Vira threw a sock in the air. Halyna hugged
 
 "It's—" said Zenko, and couldn't finish, and sat down. "She wrote it in a letter. She said she didn't want to tell me on the phone, because the phone is for bad news now. She wanted me to have a good one in an envelope."
 
-I thought about that for a long time afterward. The phone is for bad news. It's true. Everyone here has learned to flinch at a buzz. And a woman who knew that sat down with her pregnancy and a pen so her father could have one clean moment.
+I kept coming back to that afterward. The phone is for bad news. It's true. Everyone here has learned to flinch at a buzz. And a woman who knew that sat down with her pregnancy and a pen so her father could have one clean moment.
 
 We celebrated with tea and a spoonful each of Babusya's last plum jam. Zenko gave a toast, longer than the one for Bohdan. "To the next generation. May they be bored. May they be thoroughly, magnificently bored."
 

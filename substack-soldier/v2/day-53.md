@@ -30,9 +30,9 @@ Motor held a meeting. He sat us in a row and spoke in his flat solid voice. "May
 
 "Everyone wants something."
 
-I want to tell you something I noticed, which is that I wanted to believe it more than any of them. I'd said nothing, I'd stayed calm. But in the middle of the second night I'd found myself lying awake composing the call to Katya. *It's over, come to the station.* I could see her face. I could see Sonya on the platform. It was a very clear picture and it took me an hour to put it down.
+I wanted to believe it more than any of them. I'd said nothing, I'd stayed calm. But in the middle of the second night I'd found myself lying awake composing the call to Katya. *It's over, come to the station.* I could see her face. I could see Sonya on the platform. It was a very clear picture and it took me an hour to put it down.
 
-The rumor died next morning, quietly, the way they do. A supply officer came through and shrugged. "No ceasefire. Not that I know of." And a soft collective sag went through the position, the quiet slump of men who'd allowed themselves a day of hope.
+The rumor died next morning, the way they do. A supply officer came through and shrugged. "No ceasefire. Not that I know of." And a soft collective sag went through the position, the quiet slump of men who'd allowed themselves a day of hope.
 
 Nobody was angry. Yaroslav said, "It was nice for a day, though," and Vira said, "It was." I think that was the whole of it. A rumor is a kind of dream. It tells you what you want. And for a day, we'd gotten to want it out loud.
 

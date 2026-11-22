@@ -4,11 +4,11 @@
 
 We were ordered off our phones for three days, and I found out how much of my mind lived inside one.
 
-I won't give the reason because I only know part of it and the rest isn't mine to share. The order came down quietly: no calls, no messages, no photos, no signal. Phones in a bag, the bag in a box, the box under a bunk. Motor collected them one by one with Halyna watching, and each man handed his over like a child surrendering a toy.
+I won't give the reason because I only know part of it and the rest isn't mine to share. The order came down: no calls, no messages, no photos, no signal. Phones in a bag, the bag in a box, the box under a bunk. Motor collected them one by one with Halyna watching, and each man handed his over like a child surrendering a toy.
 
 Mine felt heavier than it should. It was warm from my pocket. For a second I almost asked to keep it, just to hold.
 
-The first day was withdrawal, plain and absurd. My thumb kept twitching toward a pocket that wasn't there. At every lull my hand slid to my hip and found nothing. Bohdan, who lives in his phone, looked like a man who'd lost a limb. By noon he'd cleaned his rifle four times.
+The first day was withdrawal, plain and absurd. My thumb kept twitching toward a pocket that wasn't there. At every lull my hand slid to my hip and found nothing. Bohdan, who lives in his phone, looked as if he'd lost a limb. By noon he'd cleaned his rifle four times.
 
 By the second day something shifted. The twitching faded. Without the small weather of messages and notifications, the world got bigger and slower. I noticed things. The color of the sky at five, pale peach going to green. The way Zenko's laugh starts in his shoulders. That Yaroslav hums when he thinks nobody's listening, and what he hums is the same four bars as Motor.
 
@@ -22,7 +22,7 @@ On the fourth morning Motor opened the box. Phones came out one by one and lit u
 
 I went outside and played it nine times.
 
-Behind me in the dugout I heard Vira say, to nobody, in a very flat voice, "They've hit the neighbors." I didn't turn round. The phone was still against my ear.
+Behind me in the dugout I heard Vira say, to nobody, in a voice with nothing in it, "They've hit the neighbors." I didn't turn round. The phone was still against my ear.
 
 ---
 

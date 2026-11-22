@@ -2,7 +2,7 @@
 
 # Day 34 — Dispatch: Halyna's Hands
 
-I want to describe Halyna's hands, because I think they're the most important thing in the dugout and nobody ever says so.
+Halyna's hands are the most important thing in the dugout and nobody ever says so.
 
 Square, strong, a little rough from washing. A nurse's hands, short nails, a faint pale mark on the left thumb where a scalpel once slipped. Always warm. She keeps them in her armpits when she's not using them, a habit from the ward, so they're not cold when they touch a patient. "It's courtesy," she says.
 
@@ -26,7 +26,7 @@ Over tea, I asked how she managed. Twenty years of wards, and now this. She stir
 
 I laughed, and then didn't.
 
-Later, going out, I saw her kneel by the door with her bag, checking it. The tourniquets, the bandages, the foil sheets. She counted them under her breath. I realized she'd counted them three times that day. I realized that every night, before she sleeps, she packs the bag as if for a trip she knows she's taking.
+Later, going out, I saw her kneel by the door with her bag, checking it. The tourniquets, the bandages, the foil sheets. She counted them under her breath. She'd counted them three times that day. Every night, before she sleeps, she packs the bag as if for a trip she knows she's taking.
 
 ---
 

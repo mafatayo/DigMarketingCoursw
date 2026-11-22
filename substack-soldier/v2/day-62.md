@@ -20,7 +20,7 @@ For a long moment nobody ate. We looked at the table, the candle, each other in 
 
 Motor spoke first, gruffly. "I'm not good at this." He cleared his throat. "My wife's in Chernihiv with a table like this. I'd like to think she's set a plate for me. I'd like to think she knows I've set one for her."
 
-Nobody said anything. Then Vira lifted her mug. "To the plates."
+Then Vira lifted her mug. "To the plates."
 
 "To the plates."
 
@@ -32,6 +32,6 @@ Around midnight I heard Vira, very quietly, say a name to the candle. Not loud. 
 
 # Day 62 — Notes: Smaller Traditions
 
-Twelve dishes became seven; we counted the honey. Hay under the cloth, from a barn. Garlic at the door, Vira's, she says she's not superstitious. The first star. The empty chair. Carols, indoors, quietly. A call home, each one in turn, out in the cold.
+Twelve dishes became seven; we counted the honey. Hay under the cloth, from a barn. Garlic at the door, Vira's, she says she's not superstitious. The first star. The empty chair. Carols, indoors. A call home, each one in turn, out in the cold.
 
 A tradition is a vessel. It doesn't matter if it's the right size. It matters that you pour something in.

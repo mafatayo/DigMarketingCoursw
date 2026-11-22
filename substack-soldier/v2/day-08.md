@@ -20,7 +20,7 @@ He's fifty-three and about the size of a wardrobe. He took me off my feet and pu
 
 It was maybe thirty meters. I know because we paced it afterwards.
 
-When Motor got off me I couldn't hear him. I saw his mouth moving. He was checking my arms and legs the way you'd check a car, quickly, without ceremony, and he said something and I said "What?" and he said it again, slower, and I read it off his face.
+When Motor got off me I couldn't hear him. I saw his mouth moving. He was checking my arms and legs like a car, quickly, without ceremony, and he said something and I said "What?" and he said it again, slower, and I read it off his face.
 
 "You didn't get down."
 

@@ -32,9 +32,9 @@ I've been trying to understand why the drone is worse than anything else. I thin
 
 An hour later one of them did decide. Not about us. About the next position, five hundred meters away. We heard it, a short flat bang, not very big. I stood in the doorway and counted the seconds until the net came alive. Then a voice, calm, asking for a medic. Halyna was gone before it finished.
 
-She came back at dusk and washed her hands for a long time. When Bohdan asked, she said, "He'll keep the foot." That was the only thing she said all evening.
+She came back at dusk and went straight to the bucket. When Bohdan asked, she said, "He'll keep the foot." That was the only thing she said all evening.
 
-Later Bohdan flew a patrol of his own. I stood behind him and watched the little screen. A road. A line of trees. A bright flat sky. And I thought: it's the same machine, the same thing, and we're no different. This is what the century has done to all of us.
+Later Bohdan flew a patrol of his own. I stood behind him and watched the little screen. A road. A line of trees. A bright flat sky. It's the same machine, the same thing. We're no different. This is what the century has done to all of us.
 
 ---
 

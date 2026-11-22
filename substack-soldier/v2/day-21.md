@@ -10,7 +10,7 @@ The note was on lined paper in the round shaky handwriting of someone who learne
 
 *Dear soldier. I am Halyna Ivanivna. I am 79. I can't fight, my knees are bad. But I can pickle. These are from my garden. I put dill and garlic and one horseradish leaf, like my mother did. Eat them with something hot. Don't be hungry. I pray for you at 6 every evening. Come home. Don't forget to wear a hat. — Babusya*
 
-Nobody said anything. Halyna, our Halyna, whose name was the same, read it twice, folded it up, and put it in her breast pocket without a word.
+Halyna, our Halyna, whose name was the same, read it twice, folded it up, and put it in her breast pocket without a word.
 
 We opened the cucumbers that night. I've eaten pickles in three countries and never had one like that. Cold, sharp, a clean crack when you bit in. Bohdan went quiet. "That's what my grandmother's tasted like. Exactly. How?"
 
@@ -20,7 +20,7 @@ We opened the cucumbers that night. I've eaten pickles in three countries and ne
 
 At six I was on watch. I knew because I looked at my watch, with the note in my pocket, and thought: somewhere, right now, a woman I'll never meet is kneeling at a window praying for a stranger with her entire heart. For me, as it turns out. For all of us. I'm not religious. But I stood in the cold and I didn't want to move, in case it was interrupting.
 
-Zenko said afterward, drying a mug, that the nearest town to the postmark had been hit twice in the last month. Not much. A few buildings. He'd looked it up on a paper map, which he keeps, because he trusts paper. He said it quietly and didn't say anything else.
+Zenko said afterward, drying a mug, that the nearest town to the postmark had been hit twice in the last month. Not much. A few buildings. He'd looked it up on a paper map, which he keeps, because he trusts paper. He said it and didn't say anything else.
 
 I wrote back. I don't have her address, only the town on the box. I put the letter in the post anyway, with a photo of the Colonel looking dignified. If there's any justice, it'll find her.
 

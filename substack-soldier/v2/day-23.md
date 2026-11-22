@@ -6,7 +6,7 @@ The generator died on Saturday night in the middle of Vira's favorite radio prog
 
 It's ancient, Soviet, painted a green that's been peeling since before Bohdan was born. It runs the lamp, the radio charger, and the small heater that makes the dugout bearable. Without it, we sat in the dark and the cold with one candle.
 
-Motor looked at it for a long time. "It's dead."
+Motor looked at it with his hands on his knees. "It's dead."
 
 "Can you fix it?" said Bohdan.
 

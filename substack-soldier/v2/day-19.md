@@ -16,9 +16,9 @@ This is the cruelest thing here, I think. Not the shelling. The hope. A loose to
 
 Day two, nothing. Day three, nothing. On day four, a truck came, bringing ammunition and water and a young officer who looked at our hopeful faces and said, "No rotation. Maybe next month."
 
-There was another sentence he didn't finish. The rotation had been canceled because the units on either side of us had taken losses and the line had to hold, and we were, in the language of the maps, "essential." I got that from Vira later, who'd got it from the net. She said it the way you'd read out a bill.
+There was another sentence he didn't finish. The rotation had been canceled because the units on either side of us had taken losses and the line had to hold, and we were, in the language of the maps, "essential." I got that from Vira later, who'd got it from the net. She read it out like a bill.
 
-Nobody said anything. Somebody put the kettle on.
+Somebody put the kettle on.
 
 That night I lay awake and thought about what we hadn't lost, because it had never been ours. We'd grieved it anyway, the way you grieve for a house you walked through once and almost bought.
 

@@ -24,9 +24,9 @@ But I'll tell you the other thing, because I've promised.
 
 The thaw also gives back what the winter hid.
 
-Last Thursday, on a carrying detail, Zenko and I walked past a place where the snow had gone, at the edge of a field, and I saw a boot. Just a boot. Then, further on, a shape under the matted grass that I took, at first, for a bundle of clothes. We stopped. Zenko took off his glasses and put them on again and said, very quietly, "Lys. Don't go closer."
+Last Thursday, on a carrying detail, Zenko and I walked past a place where the snow had gone, at the edge of a field, and I saw a boot. Just a boot. Then, further on, a shape under the matted grass that I took, at first, for a bundle of clothes. We stopped. Zenko took off his glasses and put them on again and said, "Lys. Don't go closer."
 
-I didn't. I stood where I was. I looked at the horizon, the way you'd look away from an accident.
+I didn't. I stood where I was. I looked at the horizon instead.
 
 "We'll mark it," said Zenko. "And we'll tell someone. There are people whose job it is." He was shaking, I noticed, though his voice was steady. "He's been there since the autumn, I think."
 

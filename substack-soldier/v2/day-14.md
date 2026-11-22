@@ -14,7 +14,7 @@ They came down together. Nobody asked. Halyna sat on the crate, the one nobody u
 
 That was all. Nobody said anything for a while. Zenko took his glasses off. Vira turned the radio down to nothing. The stove ticked.
 
-I want to describe how strange it was, because I didn't know him. I'd slept above his empty bunk for twelve nights. I'd learned the exact angle of the razor on the shelf. I'd been told not to sit on his blanket and I hadn't. I never heard his voice. And I found I couldn't breathe properly, the way you can't after a fall, and I couldn't work out whose grief I was having.
+It was strange, because I didn't know him. I'd slept above his empty bunk for twelve nights. I'd learned the exact angle of the razor on the shelf. I'd been told not to sit on his blanket and I hadn't. I never heard his voice. And I found I couldn't breathe properly, as after a fall, and I couldn't work out whose grief I was having.
 
 "He was twenty-six," Halyna said. "He had a sister. He kept a cat in a village that isn't there anymore." She stopped. "I told him to keep his head down on the way out. He said, 'Yes, Doc.' He always said it like it was a joke."
 
@@ -30,7 +30,7 @@ Motor stood up. He went to the shelf, picked up the razor, held it for a second,
 
 Nobody argued.
 
-That night I lay on the top bunk and listened to the dugout breathing. The bunk beneath me was a different kind of empty. Before, it was *out for now.* Now it was a fact. Around two I heard someone crying, very quietly, on the other side of the room. I didn't look. In that place, you give it the dark.
+That night I lay on the top bunk and listened to the dugout breathing. The bunk beneath me was a different kind of empty. Before, it was *out for now.* Now it was a fact. Around two I heard someone crying on the other side of the room. I didn't look. In that place, you give it the dark.
 
 Motor hummed his four bars until about three, and then stopped, and I heard him breathe out like a man setting something down.
 

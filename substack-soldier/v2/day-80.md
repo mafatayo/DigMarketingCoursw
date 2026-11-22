@@ -42,7 +42,7 @@ I hadn't known I wanted to. "Yes," I said.
 
 "Then that's your homework."
 
-Halyna talked last. I won't say what she said. I'll say she talked for forty minutes and Olha didn't write anything, and that at the end Halyna was crying quietly and Olha put a hand on her shoulder and said, "You've been carrying everyone's feet for six months. Nobody's been counting yours."
+Halyna talked last. I won't say what she said. She talked for forty minutes and Olha didn't write anything, and that at the end Halyna was crying and Olha put a hand on her shoulder and said, "You've been carrying everyone's feet for six months. Nobody's been counting yours."
 
 Walking back we said nothing. At the dugout door Yaroslav stopped. "I thought it'd be worse."
 

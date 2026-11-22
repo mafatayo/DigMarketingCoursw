@@ -20,7 +20,7 @@ But we both smelled it. Under the cold, the ghost of something green.
 
 By afternoon, dripping. A steady plink from the eaves of the dugout, each drop catching the pale sun. The snow in the fields had gone gray and sagging with dark patches showing through, like the skin of an old animal shedding its coat. A single crow stood on the nearest patch, looking gravely at the mud, as if reading a contract.
 
-The rumors, I should tell you, begin at the same time. Every thaw is accompanied by whispering. This year it's different. It isn't about peace. It's about something being gathered, on the far side. Trucks seen at night. A rumor of numbers. Vira has been listening harder on the net than she lets on, and last night she said, very quietly, to Motor, "The jamming's changed." That's all. He nodded and went out.
+The rumors, I should tell you, begin at the same time. Every thaw is accompanied by whispering. This year it's different. It isn't about peace. It's about something being gathered, on the far side. Trucks seen at night. A rumor of numbers. Vira has been listening harder on the net than she lets on, and last night she said to Motor, low, "The jamming's changed." That's all. He nodded and went out.
 
 Here's what I've learned about spring and war: they are old and unpleasant bedfellows. Winter's a kind of pause. A frozen breath held by all sides. The thaw means movement, and movement means the thing they've been saving.
 

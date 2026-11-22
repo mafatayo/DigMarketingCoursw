@@ -22,7 +22,7 @@ That was all. That was a good day. Warm eggs, a clear sky, the shared quiet of p
 
 I wrote it down so I'd remember. If you ever wonder what we're fighting for, I don't think it's flags or maps. It's days like that, in as many kitchens as possible, for as long as possible.
 
-I'm going to say one more thing, and I'll say it plainly, because I can't un-know it now. When I put out the lamp that night I thought: *that was a very good day, and I should hold onto it.* I didn't know why I thought that. I just had the feeling you get when you've been given a gift and haven't been told the price.
+When I put out the lamp that night I thought: *that was a very good day, and I should hold onto it.* I didn't know why. I just had the feeling you get when you've been given a gift and haven't been told the price.
 
 ---
 

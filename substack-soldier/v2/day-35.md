@@ -8,7 +8,7 @@ It was past midnight, cold enough that the metal stung, the sky thick with stars
 
 Motor was on his feet before she'd finished, boots on, hand on belt. "Halyna."
 
-"Ready." She was. She had been, I realized, for an hour, bag at her side. She slung it, took her gloves, and looked at each of us once, like checking an old photograph. "Lys. Bohdan. With me."
+"Ready." She was. She had been, for an hour, bag at her side. She slung it, took her gloves, and looked at each of us once, like checking an old photograph. "Lys. Bohdan. With me."
 
 We went out into the dark and the sharp smell of frozen earth and smoke. A vehicle idled behind a low rise, engine muttering, lights off, its driver a thin silhouette. I climbed in beside Bohdan, who was holding the stretcher frame in white hands.
 

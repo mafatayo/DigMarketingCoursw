@@ -22,7 +22,7 @@ It was just getting light. On our street, one of the buildings has had plywood w
 
 The bakery on the corner was open. It's always open. There was a queue of four, in the dark, in coats, and the owner had written *Fresh. Probably.* on the chalkboard by the door, which she's done since the day the glass went. I didn't buy anything. I stood at the back of the queue for a minute only to breathe it in, and then I went to the bus.
 
-I'd like to say I was thinking about the country, or the front, or what was coming. I wasn't. I was wondering whether I'd packed the right charger.
+I wasn't thinking about the country, or the front, or what was coming. I was wondering whether I'd packed the right charger.
 
 ---
 

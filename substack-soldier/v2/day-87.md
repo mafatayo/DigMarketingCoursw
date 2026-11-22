@@ -20,7 +20,7 @@ I believe in kitchens. In ordinary rooms. In the right to a quiet Tuesday.
 
 And I believe that I've changed, and that it isn't over. I don't know who I'll be at home. I'd like to be gentler. A better husband, a better father, a man who notices the bread.
 
-I want to say something about Katya, because Olha gave me homework. I did it three days ago. I called, on a good line, and I said: "I need to tell you something, and I want you to just listen." She said "Okay." I told her about the counting. About why I do it. About the room in the dugout where the ground moves. About Bohdan, whom I'd mentioned only as *a friend,* and about Zenko, and the night.
+About Katya: Olha gave me homework. I did it three days ago. I called, on a good line, and I said: "I need to tell you something, and I want you to just listen." She said "Okay." I told her about the counting. About why I do it. About the room in the dugout where the ground moves. About Bohdan, whom I'd mentioned only as *a friend,* and about Zenko, and the night.
 
 She didn't speak for almost a minute. Then she said, in a voice I'd never heard, "I've been counting too."
 

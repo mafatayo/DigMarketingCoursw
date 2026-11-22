@@ -28,7 +28,7 @@ I laughed. It came out as a sound I didn't know I could make. "That sounds like 
 
 I leaned my head on the post. The wind dragged across the field. A hundred meters off somebody was chopping wood, thock, thock.
 
-I want to say what's hard about this. I'm four hundred kilometers from my mother's bed, in a hole, with no leave on offer. The reason she's in that bed is the same reason I'm here. She fell on a staircase, running from the thing I'm supposed to be stopping, and I stopped nothing, I was standing in the mud learning to light a stove. That's the logic of it. It doesn't help, but it's there.
+What's hard is this: I'm four hundred kilometers from my mother's bed, in a hole, with no leave on offer. The reason she's in that bed is the same reason I'm here. She fell on a staircase, running from the thing I'm supposed to be stopping, and I stopped nothing, I was standing in the mud learning to light a stove. That's the logic of it. It doesn't help, but it's there.
 
 "I can't come."
 

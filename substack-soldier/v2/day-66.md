@@ -36,7 +36,7 @@ I looked at the kitchen window afterward. The crack was still there, a long diag
 
 I looked at the corridor too. The mattress was folded against the wall. A flashlight on a hook at child height. A small backpack by the door, packed, with a rabbit's ear sticking out of the top.
 
-"She keeps it ready," Katya said, behind me, quietly. "It's a game. She says it's a go-bag, like Papa's."
+"She keeps it ready," Katya said, behind me. "It's a game. She says it's a go-bag, like Papa's."
 
 I couldn't sleep that night. The mattress was too soft, the room too quiet. No stove. No snoring. No dog. At three I got up and sat on the kitchen floor with my back to the fridge, and a small hand slid into mine. Sonya, in her nightdress, silent. She sat down beside me and put her head on my arm and we stayed there until morning.
 

@@ -2,7 +2,7 @@
 
 # Day 56 — Dispatch: 5:40
 
-The best hour of my day is 5:40 a.m., and I'd like to defend that.
+The best hour of my day is 5:40 a.m., and I'll defend it.
 
 It isn't sleep, which I'm always short of. It's the gap. By 5:40 the night watch is ending, the day watch hasn't started, and a thin crack opens in the clock. Everyone's half awake. Nobody's had to be anything yet.
 
@@ -14,7 +14,7 @@ I light the burner behind the sandbags, shielding it with my body, and wait. The
 
 When the water boils I make the first tea. Two bags, a spoon of sugar. I pour a mug and stand there with the steam on my face, looking east.
 
-This is what I want to hold: the first sip, heat sliding down and spreading in the chest like a small sun. The birds start. Not many, tentative, tuning. Somewhere a dog barks once and thinks better of it.
+This is the part I hold on to: the first sip, heat sliding down and spreading in the chest like a small sun. The birds start. Not many, tentative, tuning. Somewhere a dog barks once and thinks better of it.
 
 Since Bohdan, it's changed. There's a place on the sandbags to my left where he used to stand at this hour, with his machine, doing the dawn check. I haven't decided what to do with it. Today I poured two mugs, out of habit, and stood there with them, and then drank one and set the other on the sandbag beside me.
 

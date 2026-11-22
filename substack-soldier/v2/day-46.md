@@ -12,7 +12,7 @@ He came in white-faced. "I lost it. I lost everything."
 
 "Spare socks. My razor. My—" He swallowed. "My mother's letters."
 
-Nobody said anything for a second. Then Halyna put down her mug, stood, and said, "All right. Let's make a list."
+Halyna put down her mug, stood, and said, "All right. Let's make a list."
 
 She gets practical when she's moved. Pencil, scrap of paper, Yaroslav on a crate. "What do you need? Not what you miss. What you need."
 

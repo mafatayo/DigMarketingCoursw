@@ -18,7 +18,7 @@ He flushed. He asked. She answered in four sentences, correctly, and added a fif
 
 "Enormously. Highlight of my month."
 
-But I want you to know the rest, the long dull part. Vira's work is ten, twelve hours a day listening to static and voices, catching what matters, passing it on, never missing a word. Last night the net went to hell. Their jamming got heavier, and the channels dissolved into a rushing roar, and she sat for four hours with her eyes shut, headset pressed to one ear, shifting frequencies by hand, picking out our own voices from the noise like threads from a rug. When someone in the next position called, thin and broken, with a casualty, she was the one who got it through. I watched her do it. Her lips were white. She didn't blink for what felt like minutes.
+Then there's the rest, the long dull part. Vira's work is ten, twelve hours a day listening to static and voices, catching what matters, passing it on, never missing a word. Last night the net went to hell. Their jamming got heavier, and the channels dissolved into a rushing roar, and she sat for four hours with her eyes shut, headset pressed to one ear, shifting frequencies by hand, picking out our own voices from the noise like threads from a rug. When someone in the next position called, thin and broken, with a casualty, she was the one who got it through. I watched her do it. Her lips were white. She didn't blink for what felt like minutes.
 
 When it was over she put her head down on the set. Just for a moment. Then she lifted it, said, "Water," and Motor was there with a mug.
 

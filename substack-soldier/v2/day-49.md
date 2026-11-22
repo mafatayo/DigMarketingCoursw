@@ -38,6 +38,6 @@ When he left he put a hand on each of our shoulders, one by one, and said someth
 
 # Day 49 — Notes: Faith
 
-A girl in the next position keeps a tiny icon in her helmet. A cheerful atheist says grace over buckwheat "just in case." A Muslim volunteer prayed beside the chaplain today, quietly, shoulder to shoulder. Someone said, "I don't know what I believe, but I believe in this tea."
+A girl in the next position keeps a tiny icon in her helmet. A cheerful atheist says grace over buckwheat "just in case." A Muslim volunteer prayed beside the chaplain today, shoulder to shoulder. Someone said, "I don't know what I believe, but I believe in this tea."
 
 It gives grief somewhere to go. It gives words to the unsayable. Say the name. Out loud, in a room.

@@ -28,11 +28,11 @@ He looked genuinely embarrassed, the way a large man does. "No. It's just work."
 
 He thought about it. "You know what's brave? A cook who makes a hot meal for sixty with two pots. I'm only a driver."
 
-And then the part that stayed with me. Before he left, he told Motor, quietly, that the next delivery of ammunition would be smaller. "Everyone's getting smaller," he said. "Not just you." He didn't say anything else. Motor nodded.
+And then the part that stayed with me. Before he left, he told Motor that the next delivery of ammunition would be smaller. "Everyone's getting smaller," he said. "Not just you." He didn't say anything else. Motor nodded.
 
 In the dugout afterward, nobody discussed it. But that night I saw Motor sitting at the crate with the ammunition count, a page in his square handwriting, doing sums. He did them three times. He crossed out a number and wrote a smaller one and crossed that out too.
 
-Oleh left at dawn. I stood at the top of the steps and watched his battered truck, loaded to the roof with other people's hope, rumble out of sight, a plume of dust hanging gold in the early light.
+Oleh left at dawn. I stood on the steps and watched his battered truck, loaded to the roof with other people's hope, rumble out of sight, a plume of dust hanging gold in the early light.
 
 ---
 

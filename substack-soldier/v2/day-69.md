@@ -32,7 +32,7 @@ It came out sharper than I meant. I saw a small hurt cross his face like a cloud
 
 The café rattled around us with spoons and laughter. Pavlo stirred his coffee, though he'd finished it.
 
-"I feel guilty," he said quietly. "Sometimes. That I'm here. That you're there."
+"I feel guilty," he said. "Sometimes. That I'm here. That you're there."
 
 "Don't."
 
@@ -44,7 +44,7 @@ He laughed thickly. "My haircut isn't stupid."
 
 "It's a bit stupid."
 
-We sat there. I realized the gap between us wasn't anger or blame. It was distance, the long cold gap between two kinds of life. He couldn't cross it and I couldn't carry him over, and that was no one's fault.
+We sat there. The gap between us wasn't anger or blame. It was distance, the long cold gap between two kinds of life. He couldn't cross it and I couldn't carry him over, and that was no one's fault.
 
 What I didn't say, because there wasn't a way: that the whole café had looked, for a moment, like something on a screen. Behind glass. And that I'd felt, in the middle of the warm yellow light, a sudden savage wish to be back in the dugout where I knew where everyone was.
 

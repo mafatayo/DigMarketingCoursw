@@ -6,7 +6,7 @@ Mail comes when a truck comes, and a truck comes when somebody decides the road 
 
 Today maybe turned into yes. I knew because Vira stopped in the middle of a sentence. She'd been telling Bohdan some long story about a cousin's wedding and she just stopped, head cocked, like a dog. Then I heard it too, the grind of a vehicle coming slowly down the track with its lights off. Everyone pretended not to listen. Nobody pretended well.
 
-The driver was about twenty, wearing a scarf that had clearly been knitted by a relative with strong views on color. He dumped two boxes and a sack on the crate and read names off a list in a flat voice.
+The driver was about twenty, wearing a scarf that had clearly been knitted by a relative with strong views on color. He dumped two boxes and a sack on the crate and read names off a list in a bored voice.
 
 "Zenko. Vira. Bohdan, two for Bohdan. Halyna. Motor."
 
@@ -32,7 +32,7 @@ When I came back down Vira had a letter open on her knee and her face turned to 
 
 I asked, later, whether anyone had had bad news. Halyna said, "In a letter? No." She said it kindly. She meant that the ones who write you the bad news send it quickly, on a phone, because they can't stand to wait for paper. It's a thing I hadn't known. Mail is for the stuff that can wait.
 
-Katya taped the window and told me in the same breath as the eggs. I thought about that for a long time on watch. I think she put it in the middle on purpose, so I'd have to read past it.
+Katya taped the window and told me in the same breath as the eggs. I thought about that all through my watch. I think she put it in the middle on purpose, so I'd have to read past it.
 
 ---
 

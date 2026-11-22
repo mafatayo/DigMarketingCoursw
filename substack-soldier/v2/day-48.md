@@ -12,15 +12,15 @@ I'll say it as flatly as I can. I heard the buzz first. Thin and close and wrong
 
 He turned his head.
 
-I won't describe what happened next. I'm not being delicate. I mean I physically can't, I've tried three times. What I'll say is that it was fast. That it was not the machine he'd been carrying. That he'd taken one step back toward the door.
+I won't describe what happened next. I'm not being delicate. I mean I physically can't, I've tried three times. It was fast. That it was not the machine he'd been carrying. That he'd taken one step back toward the door.
 
 Halyna was past me before I'd moved. I know she was running because I remember seeing her bag hit the ground behind her. I know she got to him in four seconds. I know she did everything. I stood forty feet away and heard her voice, the new voice, steady, steady, saying his name over and over, *Bohdan, look at me, Bohdan.* And then, at some point, she stopped saying it, and I'm not sure when.
 
 It wasn't long. Under ten minutes. I'll tell you he wasn't alone, that she held his hand, that Motor knelt on the other side with his cap off. That the Colonel, who isn't supposed to be near, lay down against his boots and wouldn't move.
 
-I didn't go to him. I want to be honest about that, because I keep going over it. I stood by the sandbags with the bag of water in my hand, thinking *I should go,* and my legs wouldn't. I'd carried a stretcher. I'd been in a van. I could not make myself walk forty feet. Zenko stood beside me with his hand on my shoulder, shaking, and neither of us moved.
+I didn't go to him. I keep going over that. I stood by the sandbags with the bag of water in my hand, thinking *I should go,* and my legs wouldn't. I'd carried a stretcher. I'd been in a van. I could not make myself walk forty feet. Zenko stood beside me with his hand on my shoulder, shaking, and neither of us moved.
 
-Afterward we sat in the dugout, the six of us, and for a long time nobody spoke. The kettle was cold. Nobody lit the stove. Somebody had put a mug in front of me and I hadn't touched it, and the tea had grown a skin.
+Afterward we sat in the dugout, the six of us, and nobody spoke until the light changed in the doorway. The kettle was cold. Nobody lit the stove. Somebody had put a mug in front of me and I hadn't touched it, and the tea had grown a skin.
 
 Zenko was the first to move. He got up, very slowly, took off his glasses, wiped them on his scarf, put them back. "Gentlemen," he said, and his voice broke. "Ladies. I would like to say something. And I find I can't. So let us sit."
 

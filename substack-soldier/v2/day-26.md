@@ -4,7 +4,7 @@
 
 The argument started at lunch and ended, I think, around midnight, and in between I learned that men who've been shot at together will fight to the death over a disallowed goal from years ago.
 
-It began innocently. Bohdan said something about the national team. Motor, who'd been quietly eating, put down his spoon, which is how you know he's about to say something that matters.
+It began innocently. Bohdan said something about the national team. Motor, who'd been eating, put down his spoon, which is how you know he's about to say something that matters.
 
 "That game against England," he said. "The goal that wasn't given."
 

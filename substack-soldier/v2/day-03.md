@@ -20,7 +20,7 @@ Here is what I didn't expect, and I'll put it plainly: nobody here is who you'd 
 
 But watch them for a day. Motor sets a bowl next to Bohdan's elbow without comment, because Bohdan forgets to eat. Vira reads Zenko's letters aloud when his eyes are too tired. Halyna checks everybody's feet every evening like a kindergarten teacher checking mittens, and none of this has a name. It's just Tuesday.
 
-Last night Zenko leaned across the crate and said quietly, "They'll give you a name. Not the callsign. The other kind. The kind that means they've decided to keep you."
+Last night Zenko leaned across the crate and said, "They'll give you a name. Not the callsign. The other kind. The kind that means they've decided to keep you."
 
 "What's mine?"
 

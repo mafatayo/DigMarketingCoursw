@@ -2,13 +2,13 @@
 
 # Day 72 — Dispatch: Receipts
 
-I'll say it plainly because I've been too polite: some of us are very angry about the people who steal.
+I've been too polite about this: some of us are very angry about the people who steal.
 
 It isn't constant. Most days it sits low like coals under ash. But now and then something blows on it. Last week it was a news story, a rumor probably, though not necessarily false, about equipment gone missing, contracts that didn't make sense, men in good coats getting rich while a boy in a hole can't find a spare battery.
 
 Motor said nothing. I watched his jaw.
 
-"I can take almost anything," said Yaroslav quietly. "The cold. The mud. The noise. Being scared. What I can't take is knowing someone's making money from this."
+"I can take almost anything," said Yaroslav. "The cold. The mud. The noise. Being scared. What I can't take is knowing someone's making money from this."
 
 "There are people who do," said Zenko. "There always have been. In every war."
 

@@ -4,7 +4,7 @@
 
 I saw my daughter's face on Saturday for the first time in months, and I forgot every word I'd rehearsed.
 
-The signal had been good for two days, a rare gift, and Motor, who understands such things, said quietly, "Lys, take your phone out. Go up by the post. Call them. Now."
+The signal had been good for two days, a rare gift, and Motor, who understands such things, said, "Lys, take your phone out. Go up by the post. Call them. Now."
 
 So I did. I stood in the snow in my enormous coat and pulled hat holding the phone at arm's length and heard it ring. Once, twice. A flicker. Then there they were: a bright small window of kitchen light, a tilted ceiling, a huge blurry eye.
 

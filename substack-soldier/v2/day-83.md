@@ -40,9 +40,9 @@ I didn't say mine aloud. But I thought it in the silence that followed. A kitche
 
 The rain went on, and the lamp, and the darning needle, and the Colonel sighed in his sleep. There was one more chair at the crate than anyone was using, and we'd left it where it was.
 
-"We should say Bohdan's," said Yaroslav, quietly.
+"We should say Bohdan's," said Yaroslav.
 
-Nobody spoke. Then Vira said, in a voice I'd never heard her use, "He'd fix something. A radio, an old one. Nobody in a hurry. It works. Everyone's pleased."
+Then Vira said, in a voice I'd never heard her use, "He'd fix something. A radio, an old one. Nobody in a hurry. It works. Everyone's pleased."
 
 "That's it," said Halyna.
 

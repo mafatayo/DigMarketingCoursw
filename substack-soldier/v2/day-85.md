@@ -6,7 +6,7 @@ I'm going to tell this in pieces, because that's how I have it.
 
 It started at nine in the evening with the larks silent. Vira said, at the radio, in her flat voice, "Everyone. Now." Then the ground began to move.
 
-I won't say how many or from where. I'll say it was long. Not a thump, not a spaced rhythm, but a continuous roll, a roar that took the walls and the roof and the breath out of my chest, dust falling in sheets from the beam and the lamp swinging and a pot hitting the floor and none of us able to hear it. Motor was shouting at us to get down. We were already down. We were as down as a person can be.
+I won't say how many or from where. It was long. Not a thump, not a spaced rhythm, but a continuous roll, a roar that took the walls and the roof and the breath out of my chest, dust falling in sheets from the beam and the lamp swinging and a pot hitting the floor and none of us able to hear it. Motor was shouting at us to get down. We were already down. We were as down as a person can be.
 
 I remember the Colonel. He was pressed into my ribs and shaking, his claws scraping the floor, and I had my arms round him and my face in his neck and I could feel his heart going like a bird's.
 

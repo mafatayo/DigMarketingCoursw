@@ -22,7 +22,7 @@ We went through it box by box, a long delighted afternoon. By dusk the dugout lo
 
 "They're the right ones," he said. "He kept asking for these."
 
-Nobody spoke. Zenko took the case from him gently and set it aside. "We'll keep them," he said. "For when someone else comes."
+Zenko took the case from him gently and set it aside. "We'll keep them," he said. "For when someone else comes."
 
 At the bottom of one crate I found a note from the people who'd packed it. Eight volunteers in a hall in a city I'll never see, at long tables, with a handwritten inventory. They'd sorted the socks by size. They'd put a tangerine in each box. A woman had drawn a small smiling sun on the lid in marker and signed it *Nadia.*
 

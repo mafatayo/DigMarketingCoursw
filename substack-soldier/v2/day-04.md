@@ -16,7 +16,7 @@ When it passed, Halyna lit the burner in about four seconds flat. Nobody comment
 
 It's the one meal where nobody's in charge. Motor gives orders about everything and doesn't about tea. Shoulders drop when the kettle starts. Vira stops being sharp. Zenko tells a story about the Cossacks that's about forty percent true and a hundred percent worth hearing.
 
-The day before, I'd been outside digging for six hours in a wet cold that gets in behind your ears, and when I came down the steps nobody said hello. Halyna just put a mug in my hands and closed my fingers around it, one by one, like I was a child. I nearly cried. I want to be accurate about this: I didn't, but I considered it for a good minute, which in this company is practically the same.
+The day before, I'd been outside digging for six hours in a wet cold that gets in behind your ears, and when I came down the steps nobody said hello. Halyna just put a mug in my hands and closed my fingers around it, one by one, like I was a child. I nearly cried. I didn't, but I considered it for a good minute, which in this company is practically the same.
 
 ---
 

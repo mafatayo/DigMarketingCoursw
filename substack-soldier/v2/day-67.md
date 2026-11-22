@@ -18,7 +18,7 @@ She looked me up and down, slowly, the coat, the tiredness, the new thinness, th
 
 She brought me one, hot, split, buttered. And coffee. And a second roll because the first was gone before she'd turned. She stood by with her hands folded watching me with a look I knew, the look of Lidiya, of every grandmother alive.
 
-"My son's out there," she said quietly. "A driver. I don't know where. I don't ask. When I see one of you, I feed them. I think maybe somewhere someone's feeding him."
+"My son's out there," she said. "A driver. I don't know where. I don't ask. When I see one of you, I feed them. I think maybe somewhere someone's feeding him."
 
 "I'm sure of it."
 
@@ -30,7 +30,7 @@ We went to the corridor. Katya put Sonya on the mattress, between us, and covere
 
 The first one landed a long way off. A flat soft thump in the chest. Then another, closer. The building shook very slightly, a trembling in the floor, and a glass in the kitchen clinked against another. Katya's hand found mine in the dark and held on.
 
-I counted. I'm good at it now. Outgoing, theirs, the delay, the arrival. I did it automatically, and by the fourth I realized I was saying the numbers under my breath, and Katya, beside me, had gone very still. "Danylo," she said quietly. "What are you doing?"
+I counted. I'm good at it now. Outgoing, theirs, the delay, the arrival. I did it automatically, and by the fourth I was saying the numbers under my breath, and Katya, beside me, had gone very still. "Danylo," she said. "What are you doing?"
 
 "Counting."
 
@@ -42,7 +42,7 @@ I counted. I'm good at it now. Outgoing, theirs, the delay, the arrival. I did i
 
 I stopped. We sat there in the dark with the child between us and the building trembling and I understood that I wasn't the same man who'd left. Not worse. Different, in a way she could hear.
 
-It lasted forty minutes. Nothing landed near. At 3:20 the all-clear. Sonya had slept through most of it, one foot out of the blanket. I looked at that foot for a long time.
+It lasted forty minutes. Nothing landed near. At 3:20 the all-clear. Sonya had slept through most of it, one foot out of the blanket. I looked at that foot.
 
 In the morning, on our street, the bakery was open, and a window two doors down had plywood in it.
 

@@ -16,7 +16,7 @@ It wasn't skilled. It was a handful of notes, slow, repeating, like a man crossi
 
 Then he sang, low and a little hoarse, almost spoken. The dugout went entirely still. The Colonel lifted his head off my boot. Halyna had both hands over her mouth. Bohdan's eyes were closed. Motor's four bars hummed along under Taras's voice, in a different key, two men walking the same road at different speeds. And Vira, who's never quiet, was crying with no sound at all.
 
-When he finished, nobody said anything for a long time. Then someone whispered "Again?" and he played it again. And another. A song about a river. A song about a girl at a gate. By midnight we were all humming. Zenko, in a surprising baritone, knew every verse.
+When he finished, nobody said anything until the last note stopped ringing. Then someone whispered "Again?" and he played it again. And another. A song about a river. A song about a girl at a gate. By midnight we were all humming. Zenko, in a surprising baritone, knew every verse.
 
 I don't know what it did for everyone else. For me it was a door opening in a cold house. For three-quarters of an hour nobody was a soldier. We were people in a kitchen, with a guitar that had a crack down its middle.
 

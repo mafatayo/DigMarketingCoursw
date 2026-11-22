@@ -6,7 +6,7 @@ We got a new lieutenant. He looks fifteen.
 
 Maksym is twenty-four, he assures us, with a boy's smooth face, big dark eyes, and a haircut so regulation it hurts. He arrived on a Tuesday with a spotless map case and a rucksack clearly packed by a mother, stood in the doorway, saluted, and said in a voice that cracked on the second word, "Sergeant. Lieutenant Maksym Koval. I'm... pleased to be here."
 
-Motor looked at him from boots to cap for a long time. "Sit."
+Motor looked him over from boots to cap. "Sit."
 
 I'd expected resentment. When a green officer arrives the old hands circle like cats. But what I saw was something quieter. Halyna put a mug in his hands. Vira told him where to put his boots. Zenko explained the layout of the dugout as if conducting a tour of a cathedral.
 
@@ -38,7 +38,7 @@ On the fifth day he did something I'd never seen an officer do. He carried water
 
 Maksym grinned enormously. I think it was the proudest moment of his life.
 
-And the next morning he got orders, which he read with his face going carefully blank. A change of plans from above. The section was to hold its position "regardless of developments on the flanks." He read it aloud in the flat voice of someone repeating something he's been told to repeat. Then he said, to us, to the stove, to nobody, "I don't think they know what it's like here."
+And the next morning he got orders, which he read with his face going carefully blank. A change of plans from above. The section was to hold its position "regardless of developments on the flanks." He read it aloud in the voice of someone repeating something he's been told to repeat. Then he said, to us, to the stove, to nobody, "I don't think they know what it's like here."
 
 "No," said Motor.
 

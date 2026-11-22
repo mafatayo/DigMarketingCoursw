@@ -22,7 +22,7 @@ I laughed, then stopped. "Katya."
 
 I stood at the post in the cold with the phone against my cheek and my breath fogging. I wanted so badly to tell her. About the name said at the table. About the notebook. About a ring of clumsy hands. About how I'd stood forty feet from a friend and couldn't walk. I wanted to put every bit of it on the line and let it run to her kitchen.
 
-I didn't. I want you to understand why, because I think it's the most common mistake we make.
+I didn't. It's the most common mistake we make, I think, and I made it on purpose.
 
 If I tell her, she'll carry it. She'll carry it into the night, to the bakery, to the school gate, to her mother's table. She'll hold it because she loves me and she'll never put it down. I'd be handing her a stone across four hundred kilometers and she couldn't do one thing about it. And she's already carrying so much. She's carrying the corridor.
 

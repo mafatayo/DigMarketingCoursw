@@ -6,11 +6,11 @@ I found the bridge in the green notebook.
 
 I wasn't looking for it. Vira had asked me to copy a list of numbers for the donors and I took the notebook down from the shelf for the first time since the evening she read it aloud. I turned past the columns, past the *Sorry*s, to the back cover. Inside it, in pencil, small and clean: a stone arch bridge. A graceful one, with a footpath on one side and a little lamp at each end. Under it, in student handwriting: *Village. Where the old one fell. After.*
 
-I sat with it a long time.
+I sat with it.
 
 I took it to the table. Zenko leaned over and took off his glasses. "It's very good," he said, in a voice that wasn't quite his. "An arch is the oldest hope. Every arch says, *we shall cross this.*"
 
-Nobody said anything. Then Vira said, "We should build it."
+Then Vira said, "We should build it."
 
 "Vira—"
 
@@ -24,11 +24,11 @@ Motor didn't draw. But after a while he took the pencil and with enormous care, 
 
 "To the end of the road. Where a woman waits with a thermos."
 
-Nobody said anything. Zenko took off his glasses and polished them for a long time.
+Nobody said anything. Zenko took off his glasses and polished them twice.
 
 I drew a room. Thick walls. A window onto a garden. A desk with a peg for headphones, a microphone on a stand, and a sign on the door: *QUIET. RECORDING.*
 
-We pinned them up in a crooked gallery of the world that comes after. The Colonel sat in front of it with his head tilted for a long time, as if reading.
+We pinned them up in a crooked gallery of the world that comes after. The Colonel sat in front of it with his head tilted, as if reading.
 
 I should say that none of us said who'd begun it. We left the bridge in the center, at eye level, where you'd see it first. I noticed Vira reached up and straightened it, by a millimeter, before she went to bed.
 

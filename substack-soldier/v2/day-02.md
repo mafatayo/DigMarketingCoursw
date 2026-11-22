@@ -10,7 +10,7 @@ We came in after dark. Everyone comes in after dark. A man I'd never met walked 
 
 "Drop the blanket, you idiot," said someone, and the three seconds were over.
 
-Six of us in a space my grandmother would've used for preserves. Bunks stacked like shelves. A crate for a table. Nine mugs on a board, none matching. One of them had a cartoon cat on it, and I want you to know it was the first thing I noticed. Not the map on the wall. The cat.
+Six of us in a space my grandmother would've used for preserves. Bunks stacked like shelves. A crate for a table. Nine mugs on a board, none matching. One of them had a cartoon cat on it. That was the first thing I noticed. Not the map on the wall. The cat.
 
 The sergeant was in his fifties, thick through the shoulders, gray mustache with opinions. Motor. He was cleaning something tiny with a toothbrush and he didn't look up. "Top bunk's yours. Boots on. Laces loose."
 

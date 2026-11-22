@@ -2,7 +2,7 @@
 
 # Day 59 — Dispatch: Dmytro
 
-I went to the hospital to tell Dmytro, and I'd like to describe the corridor first, because it's the one thing I'll never forget.
+I went to the hospital to tell Dmytro. The corridor comes first, because it's the one thing I'll never forget.
 
 Disinfectant, boiled cabbage, wet wool, and underneath it a faint sweetness I won't name. The smell of people being put back together. A long clean corridor painted a pale uncertain green, a row of plastic chairs against the wall, and at the end an old woman mopping the floor in long slow sweeps, like a priest.
 
@@ -26,13 +26,13 @@ I'd rehearsed it on the truck. A careful sentence. I said, "Dmytro," and nothing
 
 "No," he said. "No, he's on a patrol, he's—he's busy. That's why he didn't come."
 
-Halyna sat on the bed. She took his hand. She said it. She said it very simply, in the voice she uses, with his name in it and the word and the day. She didn't use *passed* or *lost.* She said it the way you'd tell a child the truth you'd want to be told.
+Halyna sat on the bed. She took his hand. She said it. She said it very simply, in the voice she uses, with his name in it and the word and the day. She didn't use *passed* or *lost.* She told him the way she'd want to be told.
 
 For a long moment he didn't move. Then he said, in a very small voice, "He apologized to the drones. Did you know that? In the room. At the university. He used to apologize to the printer."
 
 "I know," I said.
 
-"He was so—" He stopped. His face did something I'll remember a long time, not crying, a kind of slow collapse, like a tent when the pole's pulled. Halyna held him. The rest of us stood, uselessly, looking at the lindens.
+"He was so—" He stopped. His face did something I'll remember, not crying, a kind of slow collapse, like a tent when the pole's pulled. Halyna held him. The rest of us stood, uselessly, looking at the lindens.
 
 We stayed three hours. We didn't play cards. At some point Dmytro asked to hear it again, the whole thing, how and when and who was there, and I told him, the parts I could. I told him the cake. I told him the swallow. I told him that Bohdan hadn't been alone.
 

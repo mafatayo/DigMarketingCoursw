@@ -24,7 +24,7 @@ I didn't answer for a moment. I knelt and put my hands on her shoulders. "I prom
 
 "No. It's the truest thing I've got."
 
-She looked at me a long time. Then she put Marmalade in my hands. "He can go. But he has to come back, too."
+She looked at me. Then she put Marmalade in my hands. "He can go. But he has to come back, too."
 
 I took the rabbit.
 

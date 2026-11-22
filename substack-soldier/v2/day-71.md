@@ -10,7 +10,7 @@ The order of the pickle jars. Whether a hedgehog counts as a pet. How to pronoun
 
 And under those, once or twice a week, the bigger one. What the army should do. Whether the plan is wise. Whether the numbers add up. Those have a sharper flavor, closer to the bone. Men who've held a line for months have opinions about the line.
 
-Last night it ran a long time. The thing that set it off was a new order, from above, to hold a stretch of ground we'd been told two weeks ago to give up. Nobody understood it. Maksym read it out with his face carefully blank and said, "I don't agree with this, and I'm going to carry it out. I wanted you to hear both."
+Last night it ran past midnight. The thing that set it off was a new order, from above, to hold a stretch of ground we'd been told two weeks ago to give up. Nobody understood it. Maksym read it out with his face carefully blank and said, "I don't agree with this, and I'm going to carry it out. I wanted you to hear both."
 
 "Both," said Motor.
 

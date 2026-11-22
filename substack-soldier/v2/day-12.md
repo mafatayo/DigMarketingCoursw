@@ -18,13 +18,13 @@ She'd driven six hours, we found out, because a neighbor's son was in this briga
 
 We lined up with our mugs. Nobody talked. There was only the clink of the ladle and the sound of people breathing in steam. The first spoonful was beets and cabbage with sour cream going soft, and dill, so much dill, and it tasted precisely like my grandmother's kitchen on a Sunday when I was nine.
 
-Beside me Bohdan had his eyes closed. His spoon was halfway up and he'd just stopped. Vira was looking at the wall, but her shoulders were shaking. Zenko ate slowly, formally, nodding to himself, and said very quietly, "Madam, this is the finest borshch in Ukraine."
+Beside me Bohdan had his eyes closed. His spoon was halfway up and he'd just stopped. Vira was looking at the wall, but her shoulders were shaking. Zenko ate slowly, formally, nodding to himself, and said, "Madam, this is the finest borshch in Ukraine."
 
 "I know," she said.
 
 When it was gone she packed up and did a round of the dugout, giving each of us a quick hard look like she was checking the count. At me she stopped. "You. You're thin." And she pinched my cheek. At thirty-four. In front of my section.
 
-Halyna walked her up the steps. At the top the woman said something to her, quietly, and Halyna said something back, and the woman put a hand flat on Halyna's cheek for a second. I didn't hear it. Then she got into her little car and drove away, the whole way back, six hours, in the daylight, to do whatever else she had to do. I never learned her name.
+Halyna walked her up the steps. At the top the woman said something to her, and Halyna said something back, and the woman put a hand flat on Halyna's cheek for a second. I didn't hear it. Then she got into her little car and drove away, the whole way back, six hours, in the daylight, to do whatever else she had to do. I never learned her name.
 
 Motor stood at the top of the steps watching the dust until it was gone.
 
