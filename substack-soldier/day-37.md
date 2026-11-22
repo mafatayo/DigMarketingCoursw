@@ -2,7 +2,7 @@
 
 # Day 37 — Dispatch: Courage Is Logistics
 
-Here's a thing I would not have believed in March: the bravest person in our dugout may be a man named Oleh, who drives a truck full of cabbage.
+Here's a thing I would not have believed on Day 1: the bravest person in our dugout may be a man named Oleh, who drives a truck full of cabbage.
 
 He turned up this week, a stout, ruddy man with a thick neck and a belly that strained his jacket, who introduced himself with a handshake that could have cracked a walnut. He's a supply driver, one of a team who bring us everything. Water, fuel, food, batteries, boots, gloves, medicine, a letter from Katya, six crates of canned peaches that I suspect were stolen from a wedding.
 

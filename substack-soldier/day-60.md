@@ -6,7 +6,7 @@ Two months, and I want to take my own temperature.
 
 It's evening, the lamp low, the dugout mostly asleep. Vira's on watch. Halyna is mending something by the stove, her glasses on the end of her nose. The Colonel is stretched across the foot of my bunk, snoring in short, wheezy, indignant bursts. I'm sitting up with the notebook on my knee, trying to take stock.
 
-Physically: I'm thinner, harder, grayer. A new line has appeared at the corner of each eye. My hands are rough as bark. I can lift more than I could in March, and sleep less, and walk farther in worse boots. I've stopped noticing the cold, mostly. That scares me a little.
+Physically: I'm thinner, harder, grayer. A new line has appeared at the corner of each eye. My hands are rough as bark. I can lift more than I could when I arrived, and sleep less, and walk farther in worse boots. I've stopped noticing the cold, mostly. That scares me a little.
 
 Mentally: it's stranger. I've changed, but not in the direction I'd predicted. I expected to harden. I expected a sort of flinty, numb resolve. Instead I've gone soft in odd places. A song on the radio can undo me. A child's drawing, a stranger's pickle, a dog's weight against my leg. I cry more than I did at home. Not in grief, mostly. In something that feels like recognition.
 
@@ -54,4 +54,4 @@ An honest checklist.
 
 Thank you for being here for the first two-thirds. The last part, I think, is the hardest. I'd rather not do it alone.
 
-*(Tomorrow: Day 61. The winter turns, and so do we.)*
+*(Next: Day 61. The winter turns, and so do we.)*
