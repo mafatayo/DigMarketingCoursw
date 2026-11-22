@@ -26,7 +26,7 @@ I used my last ten minutes on the one call I could afford. Katya picked up on th
 
 "Every night. It's fine. I got used to it." Then, because she's Katya: "I'm not saying that to comfort you. I'm saying it because it's true."
 
-I held the phone against my ear for the last minute, not speaking, listening to a kitchen two hundred kilometers away. I'd have given every minute I had left.
+I held the phone against my ear for the last minute, not speaking, listening to a kitchen four hundred kilometers away. I'd have given every minute I had left.
 
 On day three a miracle. A truck pulled up driven by a woman in a pink knitted hat, loaded with twelve car batteries and a small generator. She'd driven from a town where a school had run a bake sale. "For you," she said, handing Motor a receipt in pink ink. "A hundred and four children baked for this."
 
