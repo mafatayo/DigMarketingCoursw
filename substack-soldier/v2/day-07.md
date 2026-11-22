@@ -2,11 +2,9 @@
 
 # Day 7 — Dispatch: Sunday
 
-Sundays aren't different. People at home imagine a pause. The war doesn't keep the Sabbath. But something in the dugout shifts anyway, and nobody decided it.
+Zenko shaves on Sundays. It's the only reason I knew it was Sunday. With cold water and a square of mirror propped on a nail, and the rest of us watching as if it were theater.
 
-Motor doesn't hand out chores until after breakfast. Vira keeps the radio low. Bohdan sleeps until nine, which on a Tuesday would be a crime. And Zenko shaves, carefully, with cold water and a square of mirror propped on a nail, while the rest of us watch like it's theater.
-
-"A man should have one day a week when he looks like himself," he said, dragging the blade down his cheek.
+"A man should have one day a week when he looks like himself," he said, taking the blade down his cheek.
 
 "Who do you look like?" said Vira.
 
@@ -14,35 +12,28 @@ Motor doesn't hand out chores until after breakfast. Vira keeps the radio low. B
 
 "You look like my uncle before he went to prison."
 
-He considered this and carried on shaving. I liked that he didn't fight it.
+He considered this and carried on shaving. That's one of the things I like about him.
 
-I went up and sat on a sandbag around ten. Frost on the wire. The air so cold and clean it hurt my teeth. A small brown bird sat on a post three meters away and looked at me with total contempt, and I looked back, and we stayed like that for a while, two professionals.
+Sundays aren't different, and I want that on record, because people at home imagine a pause. But Motor doesn't hand out chores till after breakfast, and Vira keeps the radio low, and Bohdan sleeps until nine, which on a Tuesday would be a court-martial. I took my tea up the steps and sat on a sandbag. Frost on the wire. A small brown bird on a post three meters away looked at me with absolute contempt. I looked back. We were there some time.
 
-You hear everything on a quiet morning. A plastic bag snapping in the wind. Somebody coughing in another dugout, a dry flat cough carrying across the field. A generator muttering a long way off. I thought about how many people were hearing the same things right now, on both sides, standing in the same cold thinking about the same kind of kitchen, and the thought wasn't peaceful. It was strange, the way it's strange when you realize the stranger on the train has a whole life behind his face.
+You hear everything on a quiet morning. A plastic bag snapping in the wind somewhere. A cough from another dugout, dry and flat, carrying across the field like a message. A generator a long way off. It struck me that the men who'd coughed, whoever they were on whichever side, were standing in the same cold thinking about the same kind of kitchen, and I didn't know what to do with that, so I drank my tea.
 
-Then I saw them coming along the track from the next position, four men carrying a fifth on a blanket, fast, not running, the careful kind of fast. One of them was holding a bag of something above the man's chest at arm's length, like a waiter. The man on the blanket wasn't making any noise at all. His boot was wrong. I'm leaving the boot there.
+Then four men came along the track from the next position, carrying a fifth on a blanket. Fast, not running, the careful kind of fast. One of them was holding a bag of something up above the man's chest at arm's length, like a waiter. The man on the blanket wasn't making any noise. His boot was wrong. I'm leaving the boot there.
 
-Halyna was past me before I'd stood up. She didn't say anything and she didn't run, either. She picked up her bag from beside the door where it always is and went along the track at the same pace as the blanket, and after a few meters she was walking next to the man's head, talking to him.
+Halyna was past me before I'd stood up. She didn't run. She picked up her bag from beside the door where it always is and walked along the track at the same speed as the blanket, and after a few meters she was beside the man's head, talking to him. I couldn't hear what.
 
 That was the first one I saw. I'd been here six days.
 
-They were back in half an hour, no blanket. Halyna washed her hands at the bucket. Then she washed them again. When she came back inside, Zenko had just finished shaving and was wiping the razor on a cloth, and he looked up, and neither of them said a word.
+They were back in half an hour, with no blanket. Halyna washed her hands at the bucket, and then she washed them again. When she came in Zenko had just finished and was wiping the razor on a cloth, and he looked up, and neither of them said a word.
 
-"Eggs," said Motor, from the corner, in his regular voice. "Someone traded for eggs. Sit."
+"Someone traded for eggs," said Motor, from the corner, in his ordinary voice. "Sit."
 
-We sat and ate three eggs each. It wasn't a good breakfast; it was a breakfast.
+Three each. It wasn't a good breakfast; it was a breakfast. Vira, with her mouth full, asked whether anyone had thought about lunch and Bohdan said it was too early to think about lunch and she said that was exactly when you thought about it.
 
 ---
 
 # Day 7 — Notes: Week One
 
-Weight lost: about three kilos. Belt: new notch.
-Hot showers: none.
-Letters received: one. Written: four.
-Times scared: stopped counting at eleven.
-Times I've laughed: more than I'd have guessed.
-Blisters: six. Halyna has opinions.
+Down about three kilos. Showers: none. Letters: one in, four out. Blisters: six; Halyna has opinions. Times scared: stopped counting at eleven.
 
-Things I miss and didn't expect to: doors. Closing a door behind me.
-
-Nobody here has asked me why I came. I've been working out why that is, and I think it's because they all know. It wasn't a speech. It was a phone call.
+Things I miss that I didn't expect to: doors. Closing one behind me.

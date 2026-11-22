@@ -1,18 +1,12 @@
 *A work of fiction inspired by the accounts of Ukrainian soldiers.*
 
-# Day 64 — Dispatch: Video Call
+# Day 64 — Dispatch: Video
 
-I saw my daughter's face on Saturday for the first time in months, and I forgot every word I'd rehearsed.
+"Lys. Phone. Post. Now," said Motor, which is how I knew the signal was good.
 
-The signal had been good for two days, a rare gift, and Motor, who understands such things, said, "Lys, take your phone out. Go up by the post. Call them. Now."
+I went up to the post in the snow in the hat Katya knitted and the enormous coat and held the phone at arm's length like a man about to take a very bad selfie. It rang twice. A flicker. And there was a ceiling, tilted, and a huge blurry eye, and Sonya's voice at about three times normal volume: "Papa! It's *Papa!*" The phone swung round the kitchen. I saw a cupboard, the cat, the taped window with the little sun drawn beside it, a pan.
 
-So I did. I stood in the snow in my enormous coat and pulled hat holding the phone at arm's length and heard it ring. Once, twice. A flicker. Then there they were: a bright small window of kitchen light, a tilted ceiling, a huge blurry eye.
-
-"Papa!" said Sonya, and the phone swung wildly. "Papa, Papa, it's *Papa!*"
-
-I'd practiced a speech. Something calm and fatherly. Instead I just laughed, an idiot grin spreading, tears running into my collar, and said, "Hello, sunshine. Hello. Hello."
-
-She'd grown. I'd known she would. But I'd been carrying a smaller person in my head, the one who waved from the doorway, and this one was taller and more serious, with a gap in her teeth and a fringe someone had cut with kitchen scissors. She held up a toy rabbit. "This is Marmalade. He's been waiting."
+She'd grown. I'd been carrying a smaller person in my head. This one had a gap in her teeth and a fringe someone had cut with kitchen scissors, and she held a toy rabbit up to the screen and said, "This is Marmalade. He's been waiting."
 
 "Hello, Marmalade."
 
@@ -20,44 +14,22 @@ She'd grown. I'd known she would. But I'd been carrying a smaller person in my h
 
 "He's right."
 
-Behind her, Katya appeared, hovering, in a gray sweater, hair longer. She didn't say anything. She stood with her hand pressed to her mouth and enormous eyes. When Sonya finally let her have the phone she held it too close, so I saw only a wide brown eye and a trembling lip.
+Katya got the phone off her eventually and held it too close, so for a second all I had was one wide brown eye and part of a lip. "You look tired," she said. I said I was. She said I looked wonderful, and I said I looked like a scarecrow, and she said a scarecrow she'd know anywhere. We talked about the neighbor's parrot. We talked about a tooth. I kept turning my head away so she wouldn't see me crying and then turning it back, because I couldn't bear to lose her face. It was twenty-three minutes. I'd planned a speech, and I'd say now that it's a mistake to plan one.
 
-"You look tired."
+In the middle of a sentence about the parrot, on her end, there was a sound.
 
-"I am."
+I knew before she did. Thin, rising. I'd have recognized it at the bottom of a lake. Katya's face did something I've seen on Halyna: it went smooth and fast and perfectly competent. "Sonya. Marmalade. Corridor. *Now.*"
 
-"You look *wonderful.*"
+On a small cracked screen I watched a six-year-old run out of frame, holding a rabbit by one ear. Katya picked up the phone, held it very close, and said in a voice that didn't shake, "Love you. Have to go. Eat." And the picture swung to ceiling and was gone.
 
-"I look like a scarecrow."
+I stayed at the post until the bars died. I counted, because I can't not now. Forty seconds. A minute. Two. I couldn't hear anything, obviously. I was four hundred kilometers away. Five minutes. Behind me, a polite twenty paces back, Motor was humming. He'd been there the whole call.
 
-"A scarecrow I'd know anywhere."
-
-We talked about nothing. The tap, the cat, school, a bad tooth, a neighbor with a parrot. I kept turning my head away so she wouldn't see me cry and then turning back because I couldn't bear to lose her face. Twenty-three minutes.
-
-Then, in the middle of a sentence about the parrot, on her end, the sound. I knew it before she did. Thin, rising, the one I've been trained all my life to hear without being told. Katya's face changed. It didn't go to panic. It went to something I've seen in Halyna, a sudden smooth flat competence.
-
-"Sonya. Marmalade. Corridor. Now."
-
-"But Papa—"
-
-"*Now.*"
-
-I watched, on a small cracked screen, a six-year-old run out of frame with a toy rabbit. Katya picked up the phone, held it up to her face, and said, in a voice that didn't shake, "I love you. I have to go. Eat." And then the picture swung into ceiling and blurred and cut.
-
-I stood in the snow with the phone dark in my mittened hand. Behind me, a respectful twenty paces back, Motor was humming. He'd been standing there the whole call.
-
-I didn't move. I stayed until the bars died and then I stayed some more. I counted. Forty seconds, sixty, two minutes, five. Nothing on my end, of course. I couldn't hear a thing four hundred kilometers away. I counted anyway.
-
-At ten minutes I got a message. One word. *Fine.*
-
-I sat in the snow and shook.
+At ten minutes there was a message. One word. *Fine.*
 
 ---
 
 # Day 64 — Notes: Screens
 
-A face, a voice, a room behind them. A child's grin in real time. And then the call ends and you're back in the snow, more alone than before.
+The call ends and you're back in the snow. I've learned to walk for ten minutes before I go in.
 
-I look at the face, not myself. I say one true thing before the end. Afterward I walk. I don't go straight in.
-
-Sirens don't care about video calls.
+She sent a photo that evening. Sonya in the corridor in a hat and a blanket, holding a flashlight under her chin, pulling a monster face.

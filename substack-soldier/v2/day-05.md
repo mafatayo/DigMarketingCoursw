@@ -1,45 +1,52 @@
 *A work of fiction inspired by the accounts of Ukrainian soldiers.*
 
-# Day 5 — Dispatch: The Rules
+# Day 5 — Dispatch: The Rules, As Recorded by Z.
 
-They gave me a booklet in training. Regulations, procedures, a lot of small print about forms. I read it twice, and none of it was about how to live in a hole with five people and a dog you haven't met yet.
+Zenko keeps a list. I found out because I caught him writing it, in pencil, in the back of his notebook, with the concentration he normally saves for the Treaty of Pereiaslav. He tried to cover it with his arm. Then he sighed and turned it round so I could read.
 
-The real rules aren't written. I've been picking them up the way you pick up a new city, by getting lost.
+*UNWRITTEN RULES (in order of discovery).*
 
-You say it out loud if you take the last of something. The last sugar, the last dry sock. "I'm taking the last one." Someone might need it more. They almost always say go ahead. That's not the point.
+*1. You say it aloud if you take the last of something. "Taking the last sugar." Someone may need it more. They nearly always say go ahead. That is not the point.*
 
-You don't tell a man he looks tired.
+*2. You do not tell a man he looks tired.*
 
-You don't sit in someone's spot. I did, on day three, on a bunk that looked free, and the room went quiet in a way I felt in my teeth. Zenko leaned over and said gently, "That's Pasha's." I moved. I've been thinking about it since. It's still his spot. It's been three weeks and it's still his.
+*3. You do not sit in another man's place. (See: Lys, day 3, Pasha's blanket.)*
 
-You don't read someone's letters. Even open, even if they're crying. Especially then.
+"I moved the second you told me," I said.
 
-You don't say "if I get home." You say "when." I slipped once, over tea, and Vira looked at me like I'd spat on the floor. She didn't say anything. She didn't need to.
+"You did. But you sat for four seconds first." He tapped the page. "I timed it."
 
-You tell someone where you're going. Even to the latrine, which is a bucket behind a tarp. "Going out." That's all. So no one has to wonder.
+*4. You do not read another's letters. Open or closed. Especially if weeping.*
 
-There are other rules too, the kind that aren't about manners. No phones outside, ever, not for a photo, not to check the time, not to say hello to your mother. Phones are small radios with a name on them, Motor says, and the other side listens for them. He said it in the flat voice he uses for things that have already cost somebody. Photos get taken, sometimes, but never of the place, never of faces, and never posted until the place isn't ours anymore. If you ask what's too much, the answer is: ask.
+*5. You say "when." Never "if." (See: Lys, again, over tea. Vira looked at him as if he had spat.)*
 
-And nobody says the number out loud. The number of the ones who've gone from our unit since the start. It's written somewhere, I'm sure. It isn't spoken. Once, on the second night, I started to ask Halyna and she looked at me over her tea, not angry, almost kind, and said, "You'll know." That was how I learned that there are rules that function as a door left slightly open.
+I'd like it noted that I said "if I get home" exactly once and there was a silence in which I could hear my own pulse. I've been very careful since.
 
-I asked Motor why none of this is written down. He thought about it so long I assumed he'd forgotten the question.
+*6. You tell someone where you are going. Even to the latrine (a bucket, behind a tarp). "Going out." So that no one has to wonder.*
 
-"If you write it down," he said, "somebody will follow the letter and forget the reason."
+*7. No phones outside. Ever. Not for a photograph, not for the time, not to say hello to your mother.*
 
-Then he gave me a bucket.
+That one was in a different pencil. Motor had added it the evening before, standing behind Zenko with his arms folded, and Zenko had let him. "Phones are small radios with a name on them," Motor had said. "The other side listens for them." He said it in the flat voice he uses for things that have already cost somebody something. Photographs get taken, sometimes, but never of the place and never of faces, and not posted until the place isn't ours anymore. "If you want to know what's too much, you ask."
+
+*8. We do not say the number.*
+
+I looked up. Zenko was looking at the page.
+
+"The number of the ones from this unit who've gone since the start," he said. "It's written somewhere, I'm sure. We don't say it. I asked Halyna once and she said, 'You'll know.'" He turned his pencil over. "It's the only rule that was never explained to me. I find I don't need it explained."
+
+I read it again. Underneath, in smaller letters, he'd written: *(Nine.)* And then drawn a line through the nine so lightly it was barely there, so that it could still be read.
+
+"Don't tell Halyna," he said.
+
+There's a ninth rule I noticed myself, that isn't on the list. You can say Pasha's name at tea, but not at supper. Nobody told me. I just saw that it's how it goes.
 
 ---
 
 # Day 5 — Notes: Words
 
-Three hundred and two hundred: wounded and killed, in that order, a code that stopped being a code the first week. Nobody says it lightly. Nobody says it much.
-
-Zero: the line. Where it begins.
-
-A bird: a drone, ours or theirs. "Bird overhead" means stop what you're doing.
-
-Rotation: the most beautiful word in the language, because it means someone is going home to sleep.
-
-Arrival: a shell, or anything like it. Said flatly, like a delivery. "Two arrivals, east side." You say it the same way you'd say you got a parcel, because if you don't, you'd say it the other way.
-
-*Dyakuyu*: thank you. Used constantly. Never wasted.
+Three-hundred: wounded. Two-hundred: killed. Nobody says either lightly.
+Zero: the line.
+A bird: a drone, theirs or ours. "Bird overhead" means stop what you're doing.
+An arrival: a shell, or something like one. Said like a delivery. "Two arrivals, east side."
+Rotation: the best word in the language.
+*Dyakuyu:* thank you. Never wasted.

@@ -1,36 +1,20 @@
 *A work of fiction inspired by the accounts of Ukrainian soldiers.*
 
-# Day 67 — Dispatch: Leave, Night Three
+# Day 67 — Dispatch: Night Three
 
-On the third day I went to the bakery.
+At 2:40 a.m. on the third night of my leave the phone went off, and my body had forgotten nothing.
 
-The one I'd walked past that first morning, lights just coming on, the smell following me two blocks. I'd thought about it for months. A silly thing to hold onto. But it had become, in my head, a lighthouse.
+I was out of the bed before the sirens started. That's the part I keep returning to. The app buzzed and I was already on my feet, one hand on the doorframe, counting, in a flat in a city I'd been living in for thirty years, with a soft mattress and hot water and a wife who'd gone from asleep to upright in the time it took me to stand. She had Sonya off the bed and into her arms. I'd been home three days and I'd already started to believe in the other story, the one where it doesn't happen to us. And my legs hadn't.
 
-I walked there slowly in a clean coat Katya had pressed. The street looked smaller. People say that, and it's true. Everything had shrunk, and the people on it seemed weightless, hurrying, scrolling, chatting in twos.
+"Corridor," said Katya, which was unnecessary.
 
-At the door I stopped. Through the glass I saw the baker, a heavy woman in a white apron arranging rolls on a tray. She looked up and froze.
+She put Sonya on the mattress between us and covered her. We sat with our backs against the wall in the dark, two adults in a hallway with no windows and a flashlight on a hook at child height. "Good wall," Sonya said, sleepily, and put her foot out of the blanket. "Other wall's bad."
 
-She came out wiping her hands. "You're the sound man. From number twelve. Katya's husband. You used to buy the poppy-seed rolls on Fridays."
+The first one landed a long way off. A flat soft thump you feel in the chest. Then another, nearer, and the building shivered, a trembling through the floor, and in the kitchen a glass clinked against a glass. Katya found my hand in the dark.
 
-"Yes."
+I counted. I do it without noticing now. Outgoing, theirs, the gap, the arrival. By the fourth I'd realized I was saying the numbers under my breath, and Katya had gone very still.
 
-She looked me up and down, slowly, the coat, the tiredness, the new thinness, the way I stood. Her face collapsed, softly, as if something she'd been holding up had been allowed to rest. "Sit. I'm making you a roll."
-
-She brought me one, hot, split, buttered. And coffee. And a second roll because the first was gone before she'd turned. She stood by with her hands folded watching me with a look I knew, the look of Lidiya, of every grandmother alive.
-
-"My son's out there," she said. "A driver. I don't know where. I don't ask. When I see one of you, I feed them. I think maybe somewhere someone's feeding him."
-
-"I'm sure of it."
-
-She wouldn't take my money. She pressed a paper bag into my hand, six rolls still warm.
-
-That night, at 2:40 a.m., the phone on the nightstand went off, and then the sirens, and Katya had Sonya in her arms before I'd found my feet. I'd forgotten. That's the horrible thing. I'd been home three days and my body had already started to believe the other story.
-
-We went to the corridor. Katya put Sonya on the mattress, between us, and covered her. We sat with our backs against the wall, two adults in a dark hallway, no windows, a flashlight on a hook. "Good wall," Sonya said sleepily. "Other wall's bad."
-
-The first one landed a long way off. A flat soft thump in the chest. Then another, closer. The building shook very slightly, a trembling in the floor, and a glass in the kitchen clinked against another. Katya's hand found mine in the dark and held on.
-
-I counted. I'm good at it now. Outgoing, theirs, the delay, the arrival. I did it automatically, and by the fourth I was saying the numbers under my breath, and Katya, beside me, had gone very still. "Danylo," she said. "What are you doing?"
+"Danylo," she said. "What are you doing?"
 
 "Counting."
 
@@ -38,18 +22,24 @@ I counted. I'm good at it now. Outgoing, theirs, the delay, the arrival. I did i
 
 "It helps."
 
-"It frightens me," she said. "It's like you're someone else."
+"It frightens me." A pause. "You sound like someone else."
 
-I stopped. We sat there in the dark with the child between us and the building trembling and I understood that I wasn't the same man who'd left. Different, not worse, in a way she could hear.
+I stopped. We sat there in the dark with the child between us and the wall humming against my shoulder blades. Forty minutes. Nothing landed near. At 3:20, the all-clear, thin and rising from the street. Sonya had slept through nearly all of it with one foot out. I looked at that foot for a while.
 
-It lasted forty minutes and nothing landed near; at 3:20 came the all-clear. Sonya had slept through most of it, one foot out of the blanket. I looked at that foot.
+Earlier that day, before any of it, I'd gone to the bakery.
 
-In the morning, on our street, the bakery was open, and a window two doors down had plywood in it.
+The one I'd walked past on the first morning, the smell following me down the street. I'd been carrying it round for two months as a kind of lighthouse. Inside there was a heavy woman in a white apron arranging rolls on a tray, and she looked up and went still.
+
+"You're the sound man," she said. "Number twelve. Katya's husband. Poppy-seed rolls, Fridays."
+
+She sat me at the little table by the window and brought a roll, hot, split, buttered, and a coffee, and then a second roll because the first was gone before she'd turned. She stood over me with her hands folded, wearing the look of Lidiya and every grandmother in the world. "My son's out there," she said. "A driver. I don't know where. I don't ask. When I see one of you I feed him. I think maybe somewhere someone's feeding him." She wouldn't take my money. She gave me a paper bag with six more.
+
+In the morning after the corridor I walked past her door and the light was on and the chalkboard said *Fresh. Probably.* In the same way, two doors down, someone had put plywood in a window.
 
 ---
 
-# Day 67 — Notes: Seen
+# Day 67 — Notes: Things People Do
 
-On leave: people look at me longer. They stand up on the tram. I've asked them not to. They say thank you and I never know what to answer. They give me rolls.
+Stand up on the tram. Say thank you, and I never know what to answer. Give me rolls. Look at me for slightly too long.
 
-Being seen isn't being understood. But a look can be warmth. I say, now, *thank you for the roll.*
+I've started saying "thank you for the roll."

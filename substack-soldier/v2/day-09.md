@@ -2,40 +2,36 @@
 
 # Day 9 — Dispatch: Four Bars
 
-I finally found out what Motor hums.
+It took me nine days to ask what Motor hums.
 
-It took nine days. I'd been working on it in the background like a crossword. Four bars, the same four bars, up, up, down, and a long note that doesn't resolve. It sounded like something from a kitchen radio when I was small.
+I'd been working on it in the background like a crossword. Four bars, always the same four, up, up, down, and then a long note that doesn't resolve. Bohdan guessed a pop song. Vira said funeral march. Zenko said possibly a Cossack lament, possibly nothing, which is his answer to most things.
 
-Bohdan guessed a pop hit. Vira said funeral march. Zenko said, "Possibly a Cossack lament, possibly nothing."
+We were carrying water, two buckets each, along the path past the latrine tarp, and it came out before I'd decided. "What's the song?"
 
-Today I was carrying water with Motor, two buckets each, and the thing came out of me before I'd decided to say it. "What's the song?"
-
-He stopped. Water slopped on his boots. He looked at me as if I'd asked what was in his wallet.
+He stopped. Water slopped on his boots. He looked at me as though I'd asked what was in his wallet.
 
 "Which song?"
 
 "The four bars."
 
-He was quiet. Then he put down the buckets and sang it, properly, the whole thing. His voice is low and rough and a bit cracked and he sang it like a village man at a wedding, not performing it, just letting it out. I won't write the words, they're not mine to share. It was about a bus. A woman waiting at a stop at the end of a road, and the road long, and the evening coming.
+A while. Then he put down the buckets and sang it, properly, the whole thing. His voice is low and rough and a bit cracked, and he sang it like a village man at a wedding, not performing, just letting it out. I won't write the words; they're not mine. It was about a bus. A woman at a stop at the end of a road, and the road long, and the evening coming.
 
-"My wife used to sing it," he said. "Twenty-six years at the depot, and she'd be at the stop when my shift ended. Every night. Thermos."
+"My wife sang it," he said. "Twenty-six years at the depot and she'd be at the stop when my shift ended, every night, with a thermos. She sings it still. She's in Chernihiv. She's alive," he added, a bit offended, though I hadn't said anything. "I get four bars out loud because after four I start thinking about her too much and I have a section."
 
-"Used to?"
+I said nothing. I picked up the buckets.
 
-"She's alive," he said, a little offended. "She's in Chernihiv. She sings it still. I get four bars out loud because after four I start thinking about her too much, and I've got a section." He picked the buckets back up. "Four bars is what I can afford."
+"Anyway," said Motor, "this is why you never fill them to the top. It's the handle. The wire on these is cheap, they sell them to the depots, I've told them. Eleven years I said it to the purchasing man. You get a handle that's too thin, you carry the weight on one finger, and the finger goes first, you understand, and then the wrist..."
 
-We carried the water. I didn't say anything because there wasn't anything.
+He talked about handles all the way back. Then about gearboxes. By the time we reached the steps I knew more about the Ikarus transmission than I'd have chosen to, and I understood he was doing it on purpose.
 
-I've noticed since that he hums it more when things are loud. I mean when something's coming in. It isn't a conscious thing. A thud in the distance and the four bars start up, low, under his breath, steady as a metronome, and I've watched Yaroslav's shoulders come down just from hearing it, and he doesn't know why.
+I've noticed since that he hums more when it's loud. A thud in the distance and the four bars start up low under his breath, steady as a metronome, and Yaroslav's shoulders come down, and he doesn't know why.
 
-When we got back Bohdan asked what the song was. Motor said, "A song about buses," and went back to his tiny engine parts. It was true, in its way.
+When we got in, Bohdan asked what the song was. "A song about buses," said Motor, and went back to his tiny engine parts.
 
 ---
 
 # Day 9 — Notes: Motor
 
-Eats last. Knows your real name and uses it when it matters. Asks one question at the end of the day: *anything hurt?* Not how are you. Anything hurt. You can answer that honestly.
+Eats last. Knows your real name and uses it when it matters. Asks one question at the end of the day: *anything hurt?* Not "how are you." You can answer that one honestly.
 
-Says "I made a mistake, here's the fix," flat, once, and moves on. Nobody respects him less.
-
-Doesn't promise. Says "I'll try." When he says yes, the room believes it.
+Doesn't promise. Says "I'll try." When he says yes the room believes him.

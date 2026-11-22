@@ -1,30 +1,30 @@
 *A work of fiction inspired by the accounts of Ukrainian soldiers.*
 
-# Day 10 — Dispatch: Quiet
+# Day 10 — Dispatch: A Quiet Day, Hour by Hour
 
-"It's quiet today," Bohdan said at breakfast, and the whole table turned and stared at him as if he'd cursed the house.
+**07:10.** Bohdan says "It's quiet today" at breakfast. The whole table stares at him. Vira throws a spoon. It misses, because she's a radio operator and not a pitcher, and clangs off the stove. Bohdan apologizes to the spoon.
 
-You don't say it. Vira threw a spoon. It missed, because she's a radio operator and not a pitcher, and clanged off the stove. Bohdan apologized to the spoon.
+**08:30.** It is quiet, though. By the standard of the last ten days it's nearly silent. Wind, dripping, Motor's four bars drifting across the room. Halyna keeps glancing at the ceiling. Zenko reads the same page three times. When it's loud you're busy. You react, the body takes over. When it's quiet the mind has room and the mind is a much worse place to be.
 
-It was quiet, though. By the standard of the last ten days, it was nearly silent. No thudding in the ground, no engines, just wind and a faint dripping and Motor's four bars drifting across the room.
+**11:40.** Tea. The first one we've had on time all week. Nobody speaks. We drink it like a ceasefire.
 
-Quiet isn't peace, I've learned; it's attention. Everyone in the dugout was hyper-alert, like people in a house where something has creaked and nobody's sure what. Halyna kept looking up at the ceiling. Zenko read the same page of his book three times. When it's loud you're busy, you react, the body takes over. When it's quiet, the mind has room, and the mind is a much worse place to be.
+**13:15.** I go to check the line and hear something I can't place. A scratching. A tick, faint and regular, like a clock in another room. I stand with the hair up on my arms for a full minute. Tick. Tick. Tick. Then I find it: a loose wire against a post, going in the wind.
 
-Around noon I went to check the line and heard something I couldn't place. A scratching. A tick, faint, regular, like a clock in another room. I stood there for a full minute with the hair up on my arms before I found it: a loose wire against a post, tapping in the wind. Tick. Tick. Tick.
+I laugh. Out loud, alone, in a field. I laugh till my eyes water and then I sit down on a sandbag and stop, because that's how thin I've been stretched to be undone by a piece of wire.
 
-I laughed. Out loud, alone, in a field. I laughed until my eyes watered, and then I sat on a sandbag and stopped, because that's how thin I'd been stretched, to be undone by a piece of wire.
-
-Vira looked at my face when I got back. "Wire?"
+**13:40.** Back at the dugout Vira looks at my face. "Wire?"
 
 "Wire."
 
-"Everyone gets the wire," she said. "Mine was a plastic bag."
+"Everyone gets the wire. Mine was a plastic bag."
 
-The evening was loud again. Far-off, a rolling sound like furniture moving upstairs. Everyone in the dugout relaxed, shoulders coming down, and Bohdan opened a book. The ordinary had come back, and the ordinary, God help us, was a relief.
+**17:00.** Halyna is teaching Zenko to tie a proper bandage. He's very bad at it. He keeps saying "ah, I see the logic," and then doing it wrong in a different way.
 
-Later, on the steps, I did the thing I've started doing, which is listening to it like I used to listen to a room. Outgoing, three, four. A long gap. Then, further off than I'd expect, a sound like a heavy door slamming in a very big building. I counted. I couldn't help it. You're not supposed to count other people's.
+**21:20.** Loud again, far off, a rolling sound like furniture being moved upstairs. The whole dugout relaxes. Shoulders drop. Bohdan opens a book. The ordinary has returned, and the ordinary, God help us, is a relief.
 
-"Somebody's having a worse night," said Motor behind me. I hadn't heard him come out.
+**22:05.** I go up the steps and listen the way I used to listen to a room. Outgoing, three. A gap. Then something further off than I'd have guessed, a sound like a heavy door shutting in a very big building. I count. You're not supposed to count other people's.
+
+"Somebody's having a worse night," says Motor, behind me. I hadn't heard him come out.
 
 "Yes."
 
@@ -32,17 +32,12 @@ Later, on the steps, I did the thing I've started doing, which is listening to i
 
 "No."
 
-He stood there a while, listening with me. "Come down. Tea at 11:40."
+**22:10.** He stands there with me anyway, listening. Then he says it's too cold for this and I should come in, and there's tea in the morning at 6:10.
 
 ---
 
 # Day 10 — Notes: Sounds
 
-Low rumble, long, rolling: far. Somebody else's problem tonight.
-Sharp crack, close: down first.
-A rising whistle: you don't wait to understand. Down.
-A buzz like a very large insect: a small drone. You learn the direction without looking. It gets into your sleep.
-Silence, sudden, after loud: the worst one.
-Ticking, scratching, flapping: wires, bags, tarps. Nothing. It still gets you.
+Low rumble, long: far. Sharp crack, close: down. A rising whistle: don't wait to understand. A buzz like a big insect: small drone, and you learn the direction without looking. Silence, sudden, after loud: the worst one. Ticking, scratching, flapping: wire, bag, tarp. Still gets you.
 
-My job at home was removing sounds nobody wanted. I thought I was good at listening. I was good at editing. These are different skills. This one is teaching me the difference.
+At home my job was removing sounds nobody wanted. I thought that made me a good listener.

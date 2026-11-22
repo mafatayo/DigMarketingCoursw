@@ -1,43 +1,33 @@
 *A work of fiction inspired by the accounts of Ukrainian soldiers.*
 
-# Day 63 — Dispatch: Carol
+# Day 63 — Dispatch: Against Regulations
 
-On the holiday night, Vira did something unauthorized, and I'm glad.
+"That," said Vira, afterwards, "was extremely against regulations."
 
-It was after midnight. The table cleared, the dishes washed, the candle burned to a puddle. Most of us half asleep in that warm swimmy state that follows a good meal. Vira, at the radio as always, was keeping the net alive with quiet patient clicks.
+She said it with her hands still shaking, which is why I'm starting there. This was around one in the morning, the night of the holiday. The dishes were washed, the candle burned to a puddle, most of us half asleep, and she'd been sitting at the set with her headset on, keeping the net alive with quiet little clicks, when she did a thing nobody asked her to do. She turned up the volume on the open channel, keyed the mic, and said in a low voice, "All posts on the net. Magpie. If anyone's awake, I have something for you."
 
-Then she did a strange thing. She turned the volume up on the open channel, keyed the mic, and said in a low voice, "All posts on the net. This is Magpie. If anyone's awake, I have something for you."
+Static. A few drowsy answers. "Go ahead, Magpie." "We're listening."
 
-Static. Then a handful of answers, drowsy, curious. "Go ahead, Magpie." "We're listening."
+She looked round the dugout like she was about to be caught, which she was. Then she sang.
 
-She cleared her throat. I saw her glance round the dugout, almost shy. Then she began to sing.
+A carol. The old one every child in the country knows. A tune that climbs slowly and then drops like a snowflake on one line. She sang it without accompaniment, in her low rough alto, into the microphone, and the words went out over the frozen fields. I stopped breathing. Halyna sat up on her bunk with her blanket round her.
 
-It was a carol. The old one, the one every child in the country learns. A simple tune, climbing slowly, with a line that falls like a snowflake. She sang it unaccompanied in her low rough true voice into the microphone, and the words went out across the black frozen fields. I stopped breathing. Halyna sat up.
+By the second verse someone from the next position had joined in, a man's voice, cracked and sweet. Then a woman, further off. Then a whole choir, thin and scattered, coming through the static from a dozen dugouts, none of them seeing each other. Motor sang. Zenko sang. Yaroslav, cracking, sang. I sang, which I don't, with my head down, and I couldn't hear myself and it didn't matter.
 
-By the second verse the net had changed. Someone from the next position had joined in, faintly, a man's voice, cracked and sweet. Then another. A woman, further off, a lovely high note. Then a whole choir, thin and scattered and astonishing, strangers coming through the static from a dozen dugouts, across miles of snow, none of them seeing each other, all singing the same song.
+When it ended there was a long crackling hush full of breath. Then an older man's voice from far to the north, hoarse: "Thank you, Magpie. Merry Christmas to all."
 
-Motor sang. Zenko sang. Yaroslav, cracking, sang. I sang, which I never do, with my head down, and I couldn't hear myself and it didn't matter.
+"Merry Christmas," came back out of the dark, in a dozen accents. "And to you."
 
-When it ended, a long crackling hush full of breath. Then an older man's voice, hoarse and warm, from far to the north: "Thank you, Magpie. Merry Christmas to all."
+"I'll do it again next year," said Vira, which is where I came in.
 
-"Merry Christmas," came back from the dark, in a dozen accents. "And to you."
+There was something I didn't tell her. I've listened to that net for two months now and I know the voices, and in the third verse I'd noticed one I couldn't hear. An older man, who'd been there all winter and always signed off with a little cough. I listened for it in the fourth verse too.
 
-Vira let go of the mic. Her hands were shaking. She looked at me across the dugout. "That," she said, "was extremely against regulations."
-
-"I know."
-
-"I'll do it again next year."
-
-"I know."
-
-I didn't say what I was thinking, which was that I'd been listening to the net for weeks and I knew some of those voices. And that when the carol began, there'd been one position in the chorus I couldn't hear. A voice that had been there for a month, an older man's. I'd listened for it in the second verse, and the third.
-
-I never learned what happened to him. I'm saying it because he should be in the carol too.
+I don't know what happened to him. I'm just saying he was meant to be in it.
 
 ---
 
 # Day 63 — Notes: Voices
 
-A song doesn't need a stage. It needs one person willing to begin. Voices find each other. Old songs hold more than new ones; a carol has a thousand winters in it.
+Never ask permission to start a song.
 
-After a song, silence is different. Fuller.
+The man who signed off with the cough used to say "God keep you" instead of "over." Nobody on the net does that now. Vira does, sometimes, by accident.

@@ -2,32 +2,28 @@
 
 # Day 61 — Dispatch: Snow
 
-*From here on, the dispatches come further apart. The nights are long, the signal's bad, and some weeks there's nothing I can say. I've kept the count anyway. It helps me know where I am.*
+*From here on the dispatches come further apart. The nights are long, the signal's bad, and some weeks there's nothing I'm allowed to say. I've kept the count anyway.*
 
-The snow came overnight and took the sound out of the world.
+Snow came in the night and took the sound out of the world. I woke at six thinking I'd lost my hearing. Lay there checking: stove, Motor's snore, the Colonel's thick breathing. All there, but wrapped in felt.
 
-I woke to a silence so deep I thought I'd gone deaf. I lay there with my eyes open, listening for the stove, for Motor's snore, for the Colonel's thick breathing. Everything was there but muffled, wrapped in felt. When I climbed the steps and pushed the door, a cold white light fell in, and the field lay under a smooth unbroken blanket without a single footprint.
+When I pushed the door the whole field was white and flat and unmarked. I stood on the top step with my mug and I could hear my own tea.
 
-I stood there. Snow absorbs sound, I've been told, the little hollows in each flake swallow it. I'd known it once as a technical fact, setting up microphones. Now I felt it in my chest. The war seemed to have been taken somewhere far off and put to sleep.
+I used to know why. It's a technical fact. The tiny hollows in a snowflake swallow sound, and a field of snow is a very large absorber, and you can get a nearly anechoic space out of it if the wind drops. I used to set up microphones in places like this and make my sound recordist friends jealous. I never in my life stood in a field of it feeling it in my chest.
 
-It doesn't last. By midday there are tracks and vehicle ruts. A black scar where someone threw stove ash. Boots wandering in a drunk line to the latrine. But for an hour the field was a clean page.
+By midday it was ruined, naturally. Truck ruts. A black scar where somebody threw the stove ash. Boots in a drunk line to the latrine. But for about an hour it was a clean page and I looked at it as long as I could.
 
-Winter slows everything, with short days and darkness at four. The cold takes the edge off the thinking part of the brain and we move like old men, saving every motion. We spend half the day gathering and chopping and stacking wood and we guard it like gold.
+Winter's slower. The days are short, dark at four. We spend half the daylight on firewood and guard it like gold. Vira has taken up knitting, badly, and is producing a long gray rectangle she calls "a scarf for someone with a very long neck." Zenko reads aloud with the Colonel's head on his foot. Yaroslav has begun, shyly, on the guitar.
 
-And yet there's a kind of peace. Long nights round the stove. Cards, stories, soup. Vira has taken up knitting, badly, and produces a long gray rectangle she calls "a scarf for someone with a very long neck." Zenko reads aloud with the Colonel's head on his foot. Yaroslav has begun, very shyly, to play the guitar.
+There are fewer of us than there were. In the weeks these dispatches skip there were two more nights like the one I told you about. Not ours. The next position. A long night, flares, then the quiet after, and a morning with stretchers. The new faces who came to fill the gaps are younger than the ones they replaced.
 
-There are fewer of us. I'll say it once and then not again. Between the thaw and the snow, in the stretch these dispatches skip, there were two more nights like the one I've told you about. Not ours, not our dugout. The next position. A long night, flares, then the quiet after. We went in the morning with the stretchers. The new faces who arrived to fill the gaps are younger than the ones they replaced.
+"Lys!" Motor was in the doorway behind me. "Wood. Now."
 
-At dusk I stood on the sandbags. The sky was a rare pale gold and the snow took the color and everything glowed. The cold bit my face but I didn't go in.
-
-This is what peace looks like, I thought, in a language I'd almost forgotten.
-
-Then somewhere far off, a thud. And I went in for tea.
+I put the mug on a sandbag. There was a little skin of ice on it by the time I came back.
 
 ---
 
 # Day 61 — Notes: Winter
 
-In summer, time's a river. In winter it's a lake, and sometimes it freezes. At the front it's two things at once: painfully slow, a night watch, and shockingly fast, two months gone.
+Days have no names. Hours have faces: the tea hour, the mail hour, the dark hour. I write one line a day in the notebook or it all smears.
 
-Days have no names. Hours have faces: the tea hour, the mail hour, the dark hour. I keep the notebook. A line a day. Otherwise it smears.
+The Colonel has learned to sit on the warm side of the stove. He's very good at it.

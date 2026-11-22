@@ -1,18 +1,28 @@
 *A work of fiction inspired by the accounts of Ukrainian soldiers.*
 
-# Day 69 — Dispatch: Pavlo
+# Day 69 — Dispatch: The Tray
 
-I met my old friend Pavlo for coffee on the fifth day of leave. It was the loneliest forty minutes of my trip.
+The waitress dropped a tray and I was under the table before the glass hit the floor.
 
-He's an old friend, the real kind. School together. My best man. A good funny kind person with a wide laugh and a habit of finishing my sentences wrong. A developer, works from home. He's stayed safe, as people should. I'm glad. I want him safe.
+I'd like that on record first, because it's the part Pavlo and I never talked about. The café was warm and yellow and full of spoons, we'd been there ten minutes, and somewhere behind me a tray of cups went down with a crash, and I was on my knees on the tiles with my arms over my head, and I heard a silence fall in the café around me. A long one. Then the waitress said, "Oh, God, I'm so sorry, are you all right?" and a boy at the next table laughed, uncertainly, and stopped.
 
-We sat in a café with warm yellow lights and good coffee. He looked well, rested, with a new haircut. For five minutes we talked about nothing, football, his girlfriend, his new flat, and it was lovely, a dip into a warm bath. Then he asked.
+Pavlo reached under the table and put a hand on my shoulder. "Danylo," he said. "It's the coffee. It's only a tray."
 
-"So. What's it *like?*"
+"I know."
 
-I didn't know what to say.
+"You can come up."
 
-I thought of Halyna's hands. The smell of fear. A name said at a table. I thought of the snow and the carol and the cat mug. I thought, how do you hand someone that over a cappuccino, between a croissant and the bill?
+"I know."
+
+I came up. I took my chair again. I said, to the room in general, that I'd dropped something. The waitress was gathering shards with a dustpan and wouldn't look at me, which was a mercy.
+
+Pavlo's my oldest friend. Real friend; we were at school together, he was my best man, he has a wide laugh and a habit of finishing my sentences wrong. A developer, works from home, stayed safe, as people should. I want him safe. He'd had a new haircut. He looked rested. For the first ten minutes it had been lovely, football, his girlfriend, his new flat, like sinking into a warm bath.
+
+Now he stirred his coffee, which he'd finished.
+
+"So," he said. "What's it like? Out there."
+
+I couldn't find an opening. I thought of Halyna's hands, and the smell of fear, and a name said at a table. I thought: how do you hand that over a cappuccino, between a croissant and the bill?
 
 "It's hard."
 
@@ -20,7 +30,7 @@ I thought of Halyna's hands. The smell of fear. A name said at a table. I though
 
 "I don't think you can."
 
-It came out sharper than I meant. I saw a small hurt cross his face like a cloud over a field. "Sorry. I just want to understand."
+That came out sharper than I'd meant. I watched it cross his face like a cloud over a field. "Sorry. I just want to understand."
 
 "I know you do."
 
@@ -28,27 +38,21 @@ It came out sharper than I meant. I saw a small hurt cross his face like a cloud
 
 "Not really."
 
-The café rattled around us with spoons and laughter. Pavlo stirred his coffee, though he'd finished it.
-
-"I feel guilty," he said. "Sometimes. That I'm here. That you're there."
+Spoons, laughter, the hiss of the machine. He said, quietly, "I feel guilty. That I'm here. That you're there."
 
 "Don't."
 
 "I do."
 
-"Pavlo." I put my hand over his. "You're the reason it's worth it. You with your stupid haircut and your flat. That's what we're keeping. If you were out there too I'd be miserable."
+"Pavlo." I put my hand on his. "You're the reason it's worth it. You and your stupid haircut and your flat. That's what we're keeping. If you were out there I'd be miserable."
 
-He laughed thickly. "My haircut isn't stupid."
+He laughed, wetly. "My haircut isn't stupid."
 
 "It's a bit stupid."
 
-We sat there. The gap between us was distance, the long cold gap between two kinds of life, and not anger or blame. He couldn't cross it and I couldn't carry him over, and that was no one's fault.
+And I didn't tell him the other thing, which is that in the middle of that café, in the yellow light, I'd had an urge so strong it frightened me to be back in the dugout where I knew exactly where everyone was. After four days of wishing I could stay home forever. I'm told it's common. I haven't found anyone yet who'll say it aloud.
 
-What I didn't say, because there wasn't a way: that the whole café had looked, for a moment, like something on a screen. Behind glass. And that I'd felt, in the middle of the warm yellow light, a sudden savage wish to be back in the dugout where I knew where everyone was.
-
-I didn't say that. I've been told it's common. It's the most disloyal thing I've felt. I'd just spent four days wishing I could stay home forever and then, in a warm café, wanted to run for the truck.
-
-As I left he hugged me hard. "Come back. So I can be a better listener."
+He paid. He tipped too much, I noticed, and said nothing. At the door he hugged me hard. "Come back," he said. "So I can be a better listener."
 
 "You're a good listener."
 
@@ -56,8 +60,8 @@ As I left he hugged me hard. "Come back. So I can be a better listener."
 
 ---
 
-# Day 69 — Notes: Telling
+# Day 69 — Notes: Things You Can Say
 
-Pick one small true thing: *the tea tastes better there.* Let them ask the wrong questions; it's love, clumsily. Don't punish the safe for being safe. That's what we want for them.
+"The tea tastes better there." True. Safe. They can hold it.
 
-Find the one who listens. There's always one.
+"I don't want to talk about it." Also fine.

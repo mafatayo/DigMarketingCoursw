@@ -1,35 +1,33 @@
 *A work of fiction inspired by the accounts of Ukrainian soldiers.*
 
-# Day 62 — Dispatch: The Empty Chair
+# Day 62 — Dispatch: Seven Dishes
 
-Twelve dishes is the tradition. That's the rule for the Holy Supper, and my grandmother would rise from the grave if she knew we'd managed seven.
+The debate about the potatoes ran four days.
 
-The evening began with a debate that ran four days. Who'd cook what. Where we'd find ingredients. Whether the potatoes counted as one dish or two. Zenko claimed the number twelve was symbolic and could be met with "creative interpretation." Halyna said, "You can't interpret borshch." Vira said, "Then bring the borshch."
+Twelve dishes is the tradition for the Holy Supper, and my grandmother would rise from the grave to see us attempt seven. Zenko said twelve was symbolic and could be met "with creative interpretation." Halyna said you can't interpret borshch. Vira said, then bring the borshch. The potatoes either counted as one dish or two, depending on whether you counted the garlic, and I'll admit that for forty minutes on the third evening I was the one arguing that garlic is a dish.
 
-We assembled what we had. Beet soup, from Halyna, out of a tin and a miracle. Boiled potatoes with garlic. Pickled cucumbers from Babusya's last jar. Bread from a village baker. *Uzvar,* stewed dried fruit, from a bag of apples and plums a driver had left. Beans. Honey, a spoon each. And kutia, the wheat porridge with poppy seed, which the chaplain had walked three kilometers to bring, in a pot wrapped in a towel. Seven. Nobody said it wasn't twelve.
+We assembled what we had. Beet soup out of a tin and a miracle. Boiled potatoes with garlic. The last of Babusya's cucumbers. Bread from a village baker. *Uzvar,* stewed dried fruit, from a bag a driver had left. Beans. Honey, a spoon each. And the kutia, the wheat porridge with poppy seed, which the chaplain walked three kilometers to bring, in a pot wrapped in a towel, with a small boy trailing him who was never introduced.
 
-We cleared the crate and spread Zenko's embroidered cloth. Halyna set a candle in the middle, a stub in a mug. At the head of the table, by tradition, stood an empty chair, for whoever couldn't be there. We left it. Nobody explained why. Beside it a plate, with a spoonful of each, and a mug of tea.
+Seven. Nobody said it wasn't twelve.
 
-Then I looked at the shelf and realized it was a different kind of empty. Two bunks. Two chairs, if you counted right. The tradition says one. We'd run short of chairs and I'd put out my own and then, quietly, a second, and nobody asked.
+By tradition there's an empty chair for whoever can't come. There weren't enough chairs. I'd put one out, and then, after a while, a second, and nobody asked. At the plate beside them Halyna put a spoonful of each dish and a mug of tea, and the candle stub in a mug in the middle, and Zenko's embroidered cloth over the crate.
 
-The chaplain said the blessing, short and quiet. Snow ticked against the door. Then, one by one, we sat.
+The chaplain said the blessing. It was short. Snow ticked on the door. We sat, and for a minute nobody ate.
 
-For a long moment nobody ate. We looked at the table, the candle, each other in the soft yellow light, the empty chairs. I felt the whole shape of the year in that small space.
+"I'm not good at this," said Motor, finally. He cleared his throat. "My wife is in Chernihiv with a table like this. I'd like to think she set a plate for me. I'd like to think she knows I've set one for her."
 
-Motor spoke first, gruffly. "I'm not good at this." He cleared his throat. "My wife's in Chernihiv with a table like this. I'd like to think she's set a plate for me. I'd like to think she knows I've set one for her."
+Vira lifted her mug. "To the plates."
 
-Then Vira lifted her mug. "To the plates."
+"To the plates," we said, and it was fine, we ate. Halyna had made the soup too salty. Nobody said so. Yaroslav had two helpings of kutia and was sick afterwards outside, apologizing to the snow. Zenko told a story about Christmas under a different regime that went on a long time and had a goat in it.
 
-"To the plates."
+The boy who'd followed the chaplain sat on the bottom step eating bread. When I offered him the last of the honey he took it with an air of great suspicion, tasted it, and then went on staring at the Colonel as if the dog were the most extraordinary thing he'd ever seen. Later someone walked him home.
 
-We ate slowly and everything tasted of someone's kitchen. Afterward Yaroslav played the lullaby on the three-string guitar, better than before. When the candle burned down the Colonel lay under the empty chair with a long sigh, as if he'd been appointed to guard it.
-
-Around midnight I heard Vira, very quietly, say a name to the candle. Not loud. Just the one. Then she blew it out.
+There were five mugs too many on the crate by the end, because everyone had taken a second, and Halyna washed them in the bucket one at a time, and then there were still the two chairs.
 
 ---
 
-# Day 62 — Notes: Smaller Traditions
+# Day 62 — Notes: Shrunk
 
-Twelve dishes became seven; we counted the honey. Hay under the cloth, from a barn. Garlic at the door, Vira's, she says she's not superstitious. The first star. The empty chair. Carols, indoors. A call home, each one in turn, out in the cold.
+Twelve dishes became seven; we counted the honey. Hay under the cloth, from a barn. Garlic at the door, Vira's, though she says she isn't superstitious. First star. Carols, indoors, low.
 
-A tradition is a vessel. It doesn't matter if it's the right size. It matters that you pour something in.
+A call home, each of us in turn, out in the cold, and nobody timing it.

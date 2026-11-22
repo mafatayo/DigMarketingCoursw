@@ -1,47 +1,41 @@
 *A work of fiction inspired by the accounts of Ukrainian soldiers.*
 
-# Day 68 — Dispatch: Going Back
+# Day 68 — Dispatch: Promise
 
-The seventh morning arrived the way a tooth arrives at the dentist.
+"Promise," said my daughter, and I couldn't.
 
-I woke before the alarm in soft gray light with Katya's arm across my chest and the weight of Sonya's feet on my shins, the two of them having migrated into our bed in the night. For a long moment I didn't move. I lay there and memorized it. The slow rise and fall of the blanket. The tick of the radiator. The smell of Katya's hair. The tiny whistle in my daughter's breath.
+She was standing in the hall in her pajamas with Marmalade under one arm, six years old and entirely serious. It was the seventh morning. I had a bag on my shoulder and my boots on, and Katya in the kitchen doorway holding a dish towel like something she'd forgotten how to put down.
 
-I've heard men say: fix it in your mind. I tried to press every detail into the soft wax of memory, knowing it wouldn't hold, knowing that in a week it would blur.
+"Papa. You're coming back. Promise."
 
-Breakfast was quiet. Katya made eggs, as I'd always wanted. She put them in front of me with a little too much force and said, "Eat." Sonya sat in my lap and fed me bread in small pieces with the seriousness of an apprentice nurse.
-
-I'd packed the night before. A clean shirt. Chocolate. A jar of Katya's plum jam. Three of Sonya's drawings. A printed photograph of the three of us on the sofa, taken by a neighbor. And a paper bag of poppy-seed rolls from the baker, who'd refused all payment.
-
-At the door I made a mistake. I'd promised myself I wouldn't. Sonya, standing in the hall in her pajamas with Marmalade under one arm, very serious, said, "Papa, you're coming back."
-
-"Yes."
-
-"Promise."
-
-I didn't answer for a moment. I knelt and put my hands on her shoulders. "I promise to try with everything I have."
+"I promise to try with everything I have."
 
 "That's not a promise."
 
-"No. It's the truest thing I've got."
+"No. It's the most honest thing I've got."
 
-She looked at me. Then she put Marmalade in my hands. "He can go. But he has to come back, too."
+She thought about that. I've seen her think about things before, usually bedtimes. She took Marmalade from under her arm and put him in my hands. "He can go. But he has to come back, too."
 
-I took the rabbit.
+I put him in my breast pocket. I'd like to tell you what I said. I think I said "good."
 
-Katya didn't cry. She took my face between her palms, hard, the way you'd check a melon, and said, "You're thinner, and you're braver than you think. Be careful. Eat. Call." Then she kissed me, and then, lower: "Come home."
+I'd packed the night before. A clean shirt, chocolate, a jar of Katya's plum jam, three of Sonya's drawings, and a printed photo of the three of us on the sofa that a neighbor took. And a paper bag of poppy-seed rolls from the baker that she'd refused to take money for. Katya made eggs for breakfast, which is the thing I'd said I wanted. She put them down with a little too much force and said, "Eat." Sonya sat on my lap and fed me bread in small pieces like a trainee nurse.
 
-I walked down the stairs. On the third step from the top it creaked. I nearly turned back.
+Before that, at six, I'd lain awake and tried to memorize it. The rise and fall of the blanket. The radiator ticking. Katya's hair, which smells of something I can't name and never could. My daughter's feet against my shins, because they'd both migrated into our bed in the night. I knew I'd lose most of it within the week. You can't fix a thing in your mind. People say you can.
 
-I didn't. At the bottom I looked up. Two faces, small and pale, in the window of the fourth floor. A hand waved. A smaller hand, holding nothing.
+Katya didn't cry. She took my face between her palms, hard, the way you'd check a melon, and said, "You're thinner. You're braver than you think. Be careful. Eat. Call." Then she kissed me. Then, much lower, "Come home."
 
-I carried the rabbit in my breast pocket all the way to the junction. At the dugout that night Motor saw it and said nothing at all, but he took my bag, and I saw that someone had set a mug at my place.
+I went down the stairs. The third one creaked and I nearly turned round.
 
-And Yaroslav, who'd been waiting up, said in a rush, "Did you see your mother? How was she? Was it all right?" He hadn't been home in seven months and he'd been waiting for me to tell him what it was like. I gave him the whole of it. The stair, the corridor, the roll. I left out the counting.
+At the bottom I looked up. Two faces in a fourth-floor window and a hand waving, a small one, holding nothing.
+
+That night in the dugout there was a mug at my place. Yaroslav was waiting up for me, which he'd never done. "Did you see your mother?" he said in a rush. "How was she? Was it all right? Did she cook?" He hadn't been home in seven months.
+
+"Eggs," I said. "She made eggs."
+
+I told him about the eggs.
 
 ---
 
 # Day 68 — Notes: Back
 
-Hard: the leaving; the first night back, the silence in reverse; relearning the cold; seeing that the people at home can keep going without you, and being glad, and not.
-
-Helps: a task, immediately. Familiar faces. A small object from home. I have a rabbit.
+First night: the silence in reverse. I couldn't sleep without the corridor sounds. The Colonel got on my feet at midnight and stayed.
