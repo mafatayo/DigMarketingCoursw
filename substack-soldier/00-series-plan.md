@@ -113,3 +113,10 @@
 | 88 | To Someone Who's Never Been | Questions Readers Asked |
 | 89 | Reader Mailbag | Reader Mailbag, Part 2 |
 | 90 | Day Ninety | Not an Ending |
+
+## Editor's notes (not for publication)
+- Days 1-60 run on consecutive days at the front. From Day 61 the numbering is a dispatch count; time jumps from winter to spring across Phase 3 (Day 61 says so in an italic note).
+- Day 88-89 mailbag: swap in real reader questions from your comments before publishing; the answers are written to be adapted.
+- Cast bible: Lys/Danylo (narrator, wife Katya, daughter Sonya 6, brother Andriy, mother in hospital), Motor (sgt, bus mechanic, hums 4 bars), Vira "Magpie" (radio), Bohdan (22-23, drones), Halyna (medic), Zenko (41, history teacher, daughter expecting), Yaroslav (19, new guy from Day 38), Lt. Maksym (Day 78), the Colonel (dog), Shtab (command-post cat), Lidiya (borshch driver), Taras (guitar, left Day 54).
+- Callsign payoff: Day 3 teases it, Day 16 tells it.
+- Every file starts with the fiction label. Keep it.
