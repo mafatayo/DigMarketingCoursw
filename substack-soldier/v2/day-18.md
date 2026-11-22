@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 18 — Dispatch: Yaroslav
 
 It rained for three days, the thin gray kind that doesn't storm, that just continues, and by the second day we'd all stopped talking about it, the way you stop talking about a relative who's overstayed.
@@ -52,8 +50,10 @@ I lay there awake. People say a unit closes round a gap like water. But what I t
 
 ---
 
-# Day 18 — Notes: New
+# Day 18 — Notes: Who Has a Roof
 
-Feed him first. Tell him it's okay to be scared, early. Teach him the rules slowly, one at a time. Give him a small job right away. Sit next to him. Don't lie about how bad it is, he'll know.
+In the first week of the rain, I thought about the houses with no roof. There are thousands. Families sleeping under sheets of plastic nailed to rafters, with a pot where the ceiling was.
 
-I was told once that nobody becomes a soldier in a day. It takes a hundred small kindnesses. Mine came from a woman with a mug.
+If you ask the people who deliver aid what's requested first, they say it isn't food. It's plastic sheeting. It's a roof.
+
+*Dispatches from the Line is a work of fiction.*

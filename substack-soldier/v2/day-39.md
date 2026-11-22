@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 39 — Dispatch: Zenko
 
 Zenko told me his story tonight, and I'll tell it back slowly, because he deserves it.
@@ -38,8 +36,10 @@ We sat a while longer. Then he said, "Some of the ones I taught are out here. I 
 
 ---
 
-# Day 39 — Notes: Generations
+# Day 39 — Notes: Empty Classrooms
 
-The young have speed and a lightness the rest of us need. The middle have patchwork skills and enough hope left over. The old have calm, perspective, and knees that predict the weather.
+Every school in the district has desks with nobody at them. Some have chairs set neatly on the tables the way they're left at the end of a day, and the day never ended.
 
-The old protect the young. The young carry the old's bags. It's an old arrangement. It works, and it also means the old are the ones who see the numbers more clearly.
+Zenko says he dreams of the roll call. He reads the names in his head. He's afraid he'll hear one of them answer.
+
+*Dispatches from the Line is a work of fiction.*

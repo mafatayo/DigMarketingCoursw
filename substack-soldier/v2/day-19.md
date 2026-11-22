@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 19 — Dispatch: Rotation
 
 It started, as it always does, with a man who knew a man.
@@ -30,8 +28,10 @@ Rest, I decided, is whatever you can steal from the day.
 
 ---
 
-# Day 19 — Notes: Waiting
+# Day 19 — Notes: No Rotation
 
-Types of waiting I've done: for an order, for the truck, for a call to connect, for a rumor to turn out true, for the rain to stop, for someone to come back, for nothing.
+A soldier can be rotated out. A mother in a basement can't. She has no shift change, no leave order, no truck at six a.m. She does her watch every night, with a child's head in her lap, and nobody writes her name on a list.
 
-It uses energy. Don't pretend it's rest. Give it a job. Mend something. Write a letter. Be gentle with the person next to you; they're waiting too.
+I don't say this to make light of ours. I say it because the wrong people always forget that the war has a night shift.
+
+*Dispatches from the Line is a work of fiction.*

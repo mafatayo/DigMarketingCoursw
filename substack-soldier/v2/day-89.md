@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 89 — Dispatch: The Questions
 
 I've been saving the questions, and tonight, with the lamp low and the stove ticking, I'll answer a few properly. Vira's reading them in her best radio voice. Halyna insists on tea first.
@@ -38,7 +36,8 @@ Halyna has asked me to add one more. *Wash your hands.* She says she has receive
 
 # Day 89 — Notes: Two More
 
-*Favorite sound now?* A kettle starting to hum.
-*Favorite smell?* Fresh bread. A wet dog. Pickles.
-*What do you wish people would stop saying?* "I can't imagine." Try, a little, even badly.
-*What do you wish they'd say?* "Tell me about the dog."
+*What would you say to the people who started this?* That I know you have a mother too.
+
+*Do you want peace?* More than anyone you'll meet. And I'd like it to be the kind that doesn't have to be fought again.
+
+*Dispatches from the Line is a work of fiction.*

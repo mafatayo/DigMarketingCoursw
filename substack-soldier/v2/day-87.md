@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 87 — Dispatch: What's Left
 
 I've been trying to put together a short statement of what's left, after eighty-seven days. It's no manifesto, more the list at the bottom of a rucksack, the stuff still there when everything else has been unpacked.
@@ -44,9 +42,10 @@ Motor read over my shoulder this morning, silently, like a very large owl. "Add 
 
 ---
 
-# Day 87 — Notes: What Changed
+# Day 87 — Notes: What I Ask
 
-Before: courage is loud. Now: courage is quiet.
-Before: be self-reliant. Now: be generous, and accept help.
-Before: fear is shameful. Now: fear is information.
-Before: home is a place. Now: home is people, and a corridor with a good wall.
+Stop treating the civilians as the background. Stop letting "tragedy" be the word. A tragedy is something nobody could have prevented.
+
+Say who did it. Say whose home it was. And say it again next month.
+
+*Dispatches from the Line is a work of fiction.*

@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 77 — Dispatch: Larks
 
 I've been watching a pair of larks, and I'm in love with them.
@@ -26,8 +24,10 @@ I wanted to say something else here, about helmets, about whose it was. I don't 
 
 ---
 
-# Day 77 — Notes: Growing
+# Day 77 — Notes: The Fields With Signs
 
-Grass grows through everything: concrete, rust, old wire. Birds nest in helmets, pipes, engines. Poppies in the churned earth, red as an argument. I saw the fox I'm named for. Insects return first; a good sign scientifically, a bad one for Vira.
+There are fields in this country with red signs at the edge. Don't walk here. Children learn to read them before they learn to read.
 
-The land forgives, slowly. It doesn't forget.
+A lark nests on the other side of the sign. It doesn't know. I find that I'm grateful for it.
+
+*Dispatches from the Line is a work of fiction.*

@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 12 — Dispatch: Borshch
 
 The borshch came in a tin the size of a bucket, strapped to the back seat of a hatchback driven by a woman who looked about sixty and who refused to give her name.
@@ -34,12 +32,10 @@ He said it flat. Like a man reporting the weather. I've been thinking about it s
 
 ---
 
-# Day 12 — Notes: 3 a.m.
+# Day 12 — Notes: What She Said
 
-Nobody's hungry at three in the morning. They're lonely. Food is company you can chew.
+I asked the woman with the borshch why she drove so far. She didn't say it was for us. She said, "I don't want your thanks. I want it to stop."
 
-Warm beats good. A hot plain cup of anything beats a gourmet cold sandwich.
+Then she handed me a ladle.
 
-What we talk about on watch is always what we'll cook when we're home. Bohdan: his mother's dumplings. Vira: a particular cake in a particular bakery in Poltava, which I've now heard described forty times. Zenko: an enormous plain omelet and a silent morning.
-
-Me: eggs, for Katya, standing at my own stove in my own socks. That's the whole list.
+*Dispatches from the Line is a work of fiction.*

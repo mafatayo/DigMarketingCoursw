@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 69 — Dispatch: The Tray
 
 The waitress dropped a tray and I was under the table before the glass hit the floor.
@@ -60,8 +58,10 @@ He paid. He tipped too much, I noticed, and said nothing. At the door he hugged 
 
 ---
 
-# Day 69 — Notes: Things You Can Say
+# Day 69 — Notes: The Injury You Can't Bandage
 
-"The tea tastes better there." True. Safe. They can hold it.
+Nobody in the café saw anything wrong with me. I was a man who'd dropped something.
 
-"I don't want to talk about it." Also fine.
+There are tens of thousands of us in this country. Please be patient with the ones who flinch.
+
+*Dispatches from the Line is a work of fiction.*

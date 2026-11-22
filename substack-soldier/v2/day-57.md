@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 57 — Dispatch: Boxes
 
 A truck of donations arrived today and Motor opened it the way a man opens a letter from the tax office.
@@ -40,8 +38,10 @@ We didn't, of course. But I wrote one note and taped it to the lid of the next b
 
 ---
 
-# Day 57 — Notes: Where It Goes
+# Day 57 — Notes: What's in the Box
 
-Useful: warm clothes, medical supplies, batteries, tape, tools, soap, foot powder, tinned food, letters. Less useful: china, fragile things, things that need a dry room, anything unlabeled.
+Someone drew a smiling sun on the lid of a crate. Someone packed a tangerine into each box. Somewhere in the world there's a table with eight people standing round it who've never met us.
 
-Ask a reliable volunteer group what they need. Keep receipts. Give a little, regularly. Small and steady beats big and once.
+That is the thing the war can't touch.
+
+*Dispatches from the Line is a work of fiction.*

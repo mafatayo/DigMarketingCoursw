@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 38 — Dispatch: The Lieutenant
 
 We got a new lieutenant. He looks fifteen.
@@ -48,10 +46,10 @@ And the next morning he got orders, which he read with his face going carefully 
 
 ---
 
-# Day 38 — Notes: Officers
+# Day 38 — Notes: Nineteen
 
-What a green officer needs: honesty about what he doesn't know, an unofficial teacher, a chance to carry buckets, the courage to be corrected.
+They're getting younger. I won't say that as a complaint, only a fact. Yaroslav is nineteen and arrived with boots too clean for the mud.
 
-What he gets from us: patience. We were new once. Tell him when he's wrong. Be loyal. He's trying.
+Somewhere a mother signed a form. I'd like her to know that someone shared his soup with him on the first night.
 
-Authority is earned bucket by bucket.
+*Dispatches from the Line is a work of fiction.*

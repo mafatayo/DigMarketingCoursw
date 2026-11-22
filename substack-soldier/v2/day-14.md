@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 14 — Dispatch: Pasha
 
 The call came for Halyna at four in the afternoon, in the middle of a mug of tea.
@@ -36,13 +34,10 @@ Motor hummed his four bars until about three, and then stopped, and I heard him 
 
 ---
 
-# Day 14 — Notes: Two Weeks
+# Day 14 — Notes: His Sister
 
-Things I got wrong:
+Pasha had a sister. She's twenty-two. She was told on the phone, by a stranger, in about forty seconds.
 
-I thought it would be louder. It's mostly quiet. The quiet's what hurts.
-I thought I'd be braver. I'm exactly as brave as before, and better at hiding it.
-I thought the hard part would be the enemy. It's the cold, and the waiting, and now this.
-I thought I'd have nothing in common with these people. I have everything.
+If you ever have to be the one who delivers that kind of news: slow down. Say the name first. Let there be a pause. It's the last thing she'll remember about the call.
 
-I didn't know there'd be a day like today so early. I don't think anyone does.
+*Dispatches from the Line is a work of fiction.*

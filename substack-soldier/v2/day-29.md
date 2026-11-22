@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 29 — Dispatch: A Blue Heart
 
 I got a letter today that wasn't for me.
@@ -24,8 +22,10 @@ Maria will never know. She'll go to school, forget, grow up, become a woman in a
 
 ---
 
-# Day 29 — Notes: Letters
+# Day 29 — Notes: Dear Children
 
-If you write: keep it short. Be kind, not pitying. Ask a question. Add a drawing, even a bad one. Don't ask about the war. Ask about the dog.
+To the children who write to us from other countries: your teachers probably told you it's hard to understand a war. It is. Don't try to understand it. Try to be kind to the child in your class who is from here.
 
-Every card goes on the wall. We have a wall now. It's the only decoration in the dugout, and it's the warmest part of it.
+That's the front line, for you. It's a very real one.
+
+*Dispatches from the Line is a work of fiction.*

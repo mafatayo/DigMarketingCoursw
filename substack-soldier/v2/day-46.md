@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 46 — Dispatch: The Bag
 
 Yaroslav lost his bag.
@@ -42,10 +40,10 @@ Then he hummed his four bars until he fell asleep.
 
 ---
 
-# Day 46 — Notes: Replaceable
+# Day 46 — Notes: What You Take
 
-Socks, gloves, hats, razors, mugs, tools. Even a rifle. Even a radio.
+When families evacuate they have an hour. People take documents, medicine, the cat, a photograph. A woman told me she took her husband's reading glasses because she couldn't decide what else.
 
-Not replaceable: letters, photographs, a child's drawing, a pencil from your father. Anything with a voice in it.
+You can replace everything. You can't replace the glasses.
 
-It's easy to be generous with what can be replaced. Motor walked back into the dark for a bag of letters, and I'm still thinking about that.
+*Dispatches from the Line is a work of fiction.*

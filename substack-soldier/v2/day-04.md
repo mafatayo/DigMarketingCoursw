@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 4 — Dispatch: 11:40
 
 We missed the 11:40 tea.
@@ -20,10 +18,10 @@ What I haven't worked out is who the column "if they're bored" is for.
 
 ---
 
-# Day 4 — Notes: Rankings
+# Day 4 — Notes: Smoke
 
-Buckwheat with tinned meat: 8. Twelve minutes, never lets you down.
-Instant noodles: 6. Bohdan eats them dry, as a snack, which I find upsetting.
-Cold porridge from a bag: 2. We don't discuss it.
-Borshch, when a volunteer brings it: off the scale.
-Anything a grandmother sent: infinity.
+A woman in the village told us she doesn't light her stove in the daytime now. Smoke can be seen. So her house is cold from morning till dusk and her grandchildren eat their porridge cold.
+
+That is one more thing the war decides: who gets to cook. It decides it for a woman who has never fired anything.
+
+*Dispatches from the Line is a work of fiction.*

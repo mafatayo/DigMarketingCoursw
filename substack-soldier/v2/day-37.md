@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 37 — Dispatch: Oleh and the Cabbage
 
 A thing I wouldn't have believed on Day 1: one of the bravest people I know drives a truck full of cabbage.
@@ -36,10 +34,10 @@ Oleh left at dawn. I stood on the steps and watched his battered truck, loaded t
 
 ---
 
-# Day 37 — Notes: Lines
+# Day 37 — Notes: Bread
 
-Water. Food. Gas for the stove. Fuel for the generator. Batteries. Mail. Medicine. Spare parts. Boots. Dry socks. New faces. Information. Morale. Someone to say thank you.
+A town of forty thousand can run out of flour in a week if the road closes. Nobody tells you. A queue forms, quiet, polite, because everyone knows each other.
 
-A war is also a very large, very fragile delivery system. Every mile of that road is somebody's courage.
+I've seen a man give up his place for a woman with a pram, and then, ten minutes later, give up his own bread.
 
-Thank the person who does the logistics. Out loud. Today.
+*Dispatches from the Line is a work of fiction.*

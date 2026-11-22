@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 55 — Dispatch: The List
 
 I've been keeping a list.
@@ -28,8 +26,10 @@ It's arithmetic, not a wish. Everyone in this book was a person who thought they
 
 ---
 
-# Day 55 — Notes: Remembering
+# Day 55 — Notes: The Names
 
-Names, on a page, a wall, a stone. Objects: a mug, a pocketknife, a hat. Stories, the best kind, told badly. Songs. A glass poured and not drunk. A candle.
+There's a list somewhere of the civilians who died. It's very long. I'm told it's incomplete, and I'm told that the names matter more than the numbers.
 
-I won't make anyone a symbol. They were people. They had bad moods and favorite socks.
+Pick one. Say it aloud. It's the least anyone can do.
+
+*Dispatches from the Line is a work of fiction.*

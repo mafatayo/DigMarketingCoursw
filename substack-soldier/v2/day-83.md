@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 83 — Dispatch: A Tuesday
 
 Tonight we did something we'd been avoiding. We described, in detail, our perfect ordinary day.
@@ -52,8 +50,10 @@ For a long time nobody wanted to be the first to speak.
 
 ---
 
-# Day 83 — Notes: Plain
+# Day 83 — Notes: Tuesdays
 
-Zenko: a melon. Yaroslav: a cow. Vira: cake. Halyna: a tomato and a quiet porch. Motor: a bus stop. Me: a kitchen.
+We all described the same day. A kitchen, a market, a bus stop, a garden. Nobody asked for a victory parade. Nobody said "justice."
 
-None of it's large. None of it's impossible. All of it's ordinary. We've been fighting, in the end, for Tuesdays.
+Justice is the Tuesday. That's what it looks like when you get it.
+
+*Dispatches from the Line is a work of fiction.*

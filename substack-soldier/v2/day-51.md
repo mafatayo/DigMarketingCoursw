@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 51 — Dispatch: How Is It Really
 
 Katya asked me a direct question last night, and I lied.
@@ -42,10 +40,10 @@ I stood there a long while with the dead phone against my ear. Four hundred kilo
 
 ---
 
-# Day 51 — Notes: Edits
+# Day 51 — Notes: Four Hundred Kilometers
 
-I don't say the names of places. I don't say the names of the hurt. I don't say how close it got. I don't say what the nights are like. I don't say I've written a letter "in case."
+Almost every family here is split between a place and a phone. A father at the front. A mother in the city. A daughter in another country. A grandmother who refused to leave the village.
 
-I do say that I ate, that I'm warm, that the dog likes me. I say I love them, every call, once, plainly.
+Everyone is in at least two places. Everyone is tired from being both.
 
-There's a difference between lying and carrying. I'm not always sure which side of it I'm on.
+*Dispatches from the Line is a work of fiction.*

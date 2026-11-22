@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 9 — Dispatch: Four Bars
 
 It took me nine days to ask what Motor hums.
@@ -30,8 +28,8 @@ When we got in, Bohdan asked what the song was. "A song about buses," said Motor
 
 ---
 
-# Day 9 — Notes: Motor
+# Day 9 — Notes: The Buses
 
-Eats last. Knows your real name and uses it when it matters. Asks one question at the end of the day: *anything hurt?* Not "how are you." You can answer that one honestly.
+Before the war Motor's depot ran the city routes. In the first weeks it ran them out of the city, packed to the doors, no timetable. He doesn't say how many. He says only that the buses were never meant for that many and none of them broke down. "Not one," he says. He's prouder of that than of anything.
 
-Doesn't promise. Says "I'll try." When he says yes the room believes him.
+*Dispatches from the Line is a work of fiction.*

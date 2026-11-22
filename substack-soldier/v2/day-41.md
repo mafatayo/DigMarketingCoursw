@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 41 — Dispatch: Daniel
 
 The foreigner came with a delivery of medical supplies, and for ten minutes nobody could tell if he was a doctor, a journalist, or lost.
@@ -36,10 +34,10 @@ In the morning Daniel looked ten years older. He drank his tea with both hands. 
 
 ---
 
-# Day 41 — Notes: Visitors
+# Day 41 — Notes: What the World Can Do
 
-Nurses, mechanics, retirees, students, pilots, cooks, interpreters, a surprising number of Scots. They drive vans and carry stretchers and teach first aid and fix generators and sometimes just sit and listen.
+A man from Canada came with bandages and said it was a small thing. It isn't. It is exactly the size of what's needed, repeated ten thousand times by people who decided not to look away.
 
-If you come: learn five words. Hello, thank you, please, tea, sorry. They go further than you'd think.
+If you can't come: write. Give. Share what is true, and ignore what isn't. That's the size of it.
 
-*Dyakuyu*, Daniel.
+*Dispatches from the Line is a work of fiction.*

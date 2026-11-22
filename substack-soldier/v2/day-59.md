@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 59 — Dispatch: Dmytro
 
 I went to the hospital to tell Dmytro. The corridor comes first, because it's the one thing I'll never forget.
@@ -48,10 +46,10 @@ I didn't know what to say.
 
 ---
 
-# Day 59 — Notes: Wards
+# Day 59 — Notes: The Ward
 
-Recovery is slow, and it's a job. Visitors help: bring jokes, bring oranges. Don't pity; ask what's needed and listen. The nurses are saints.
+The ward has soldiers and civilians in the same corridor. A boy with a leg in a frame next to an old woman with a hip. A girl visiting her father. A man visiting his mother.
 
-Everyone's terrified of going home. They fear being a burden more than the pain.
+I'd like to say they've nothing in common. They have everything in common. They're tired of being brave.
 
-Telling someone is the worst thing I've done here. I'd do it again.
+*Dispatches from the Line is a work of fiction.*

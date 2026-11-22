@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 58 — Dispatch: Lidiya
 
 The woman in the little hatchback came back, the one with the borshch, and this time I got her name.
@@ -60,8 +58,10 @@ When she left she gave each of us a hard look and a hard pinch on the cheek, eve
 
 ---
 
-# Day 58 — Notes: Civilians
+# Day 58 — Notes: The Other Army
 
-Retired seamstresses with large pots. Taxi drivers who became ambulance drivers. Bakers who bake at 3 a.m. for the hospital. Teachers in basements. Programmers who build tools for free. Students folding camouflage nets. So many grandmothers knitting.
+Grandmothers, taxi drivers, bakers, students, seamstresses. They haven't been issued weapons. They've been issued a conscience, and they're using it better than most.
 
-They fill the gaps nobody planned for. They don't wait for permission.
+If this ends, history should say they won it.
+
+*Dispatches from the Line is a work of fiction.*

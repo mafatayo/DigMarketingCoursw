@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 52 — Dispatch: Press
 
 They came on Thursday, a man and a woman in clean vests that said PRESS, a camera as big as a small dog, and a young local driver who refused to leave the car.
@@ -32,8 +30,10 @@ But I'd said his name on camera, and I don't think I'd have said it otherwise. I
 
 ---
 
-# Day 52 — Notes: Reading Reports
+# Day 52 — Notes: To the Journalists
 
-Look for the ordinary detail: a mug, a dog, a sock. That's where the truth sits. Be wary of the perfect quote; real people mumble. Check the date. Check the source. Notice who's missing.
+Ask the ordinary question. What was the bread like? What did the child say? Where did the cat go? You'll get the whole war from the bread, I promise.
 
-Don't confuse one story for the whole. Ours is one dugout of thousands. And be kind to yourself. You don't have to watch everything.
+And please get the names right. A name misspelled is a second death.
+
+*Dispatches from the Line is a work of fiction.*

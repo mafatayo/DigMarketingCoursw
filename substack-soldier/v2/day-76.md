@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 76 — Dispatch: What the Thaw Gives Back
 
 The mud came back and it had brought friends.
@@ -44,8 +42,10 @@ She'd gone very quiet. When I asked, she said that every spring she thinks of th
 
 ---
 
-# Day 76 — Notes: Mud Season
+# Day 76 — Notes: What the Thaw Gives Back
 
-Gaiters from old trousers. Plastic bags over socks, inside the boot. Planks. Walk like a heron. Clean your boots at every door; you'll fail.
+Every spring there are people whose job is to walk the fields with notebooks. Volunteers, mostly. They find what the winter held and they try, one by one, to give it a name.
 
-Laugh. It's the only thing that doesn't stick.
+If you want to know what peace is going to look like here, it looks like that: patient people with notebooks, walking slowly.
+
+*Dispatches from the Line is a work of fiction.*

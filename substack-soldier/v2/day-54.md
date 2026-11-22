@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 54 — Dispatch: Taras Leaves
 
 Taras, the guitar man, is being transferred.
@@ -46,8 +44,10 @@ I've kept a count since Bohdan. I mean of the people who aren't here. Pasha. Boh
 
 ---
 
-# Day 54 — Notes: See You
+# Day 54 — Notes: Stations
 
-Most people leave without drama. Some never say it. Some say it badly, which is fine. "See you" is the standard, a promise and a hope.
+The railway stations are the saddest and the best places in the country. Women with suitcases, men with bags, a boy holding a toy. A kiss through a window. A hand against the glass.
 
-When I like someone now, I tell them. Plainly. "I'm glad you're here." It costs nothing. It might be the last thing they hear from me.
+Nobody says goodbye on the platform. They say "see you.
+
+*Dispatches from the Line is a work of fiction.*

@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 23 — Dispatch: The Generator
 
 The generator died on Saturday night in the middle of Vira's favorite radio program, which she listens to on a tiny speaker with the volume at one. She made a noise I can only describe as a teakettle losing faith.
@@ -42,8 +40,10 @@ I lay awake and listened to it run. Chug, chug, chug. A very small, very stubbor
 
 ---
 
-# Day 23 — Notes: Trades
+# Day 23 — Notes: Maternity
 
-Motor: buses, so everything. Halyna: nursing, and sewing. Zenko: patience and explaining things to frightened people. Bohdan: small machines. Vira: numbers, lists, sharp tongues. Me: I can tell what an engine is doing from far away, and where a noise is coming from. I'm learning that's a kind of weapon.
+One of the maternity wards in a city I won't name has moved to its own basement. They run it off a generator, like ours. Babies are born under bare bulbs, with the midwives wearing helmets.
 
-There's no useless trade. Everyone's old job found a corner of this where it was needed. That's the only kind thing I can say about it.
+I think about the first thing those children hear. It would be nice if it were a voice.
+
+*Dispatches from the Line is a work of fiction.*

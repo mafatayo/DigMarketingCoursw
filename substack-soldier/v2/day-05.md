@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 5 — Dispatch: The Rules, As Recorded by Z.
 
 Zenko keeps a list. I found out because I caught him writing it, in pencil, in the back of his notebook, with the concentration he normally saves for the Treaty of Pereiaslav. He tried to cover it with his arm. Then he sighed and turned it round so I could read.
@@ -42,11 +40,10 @@ There's a ninth rule I noticed myself, that isn't on the list. You can say Pasha
 
 ---
 
-# Day 5 — Notes: Words
+# Day 5 — Notes: What the Children Call It
 
-Three-hundred: wounded. Two-hundred: killed. Nobody says either lightly.
-Zero: the line.
-A bird: a drone, theirs or ours. "Bird overhead" means stop what you're doing.
-An arrival: a shell, or something like one. Said like a delivery. "Two arrivals, east side."
-Rotation: the best word in the language.
-*Dyakuyu:* thank you. Never wasted.
+In the shelters, I'm told, the children have their own words. A shell is "the big one." A drone is "the bee." The all-clear is "the song." They say them without fear, like words for weather.
+
+Some words you don't need to teach a child. I wish this were one of those cases where we hadn't.
+
+*Dispatches from the Line is a work of fiction.*

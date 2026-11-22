@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 44 — Dispatch: Salt
 
 I put salt in my tea this morning and didn't notice until Vira stared.
@@ -32,10 +30,10 @@ I found out afterward that during those eleven hours the others had gone to the 
 
 ---
 
-# Day 44 — Notes: Gray
+# Day 44 — Notes: Nobody Slept
 
-Signs: rereading a line three times, forgetting a name you've known for weeks, snapping at something small, laughing too loud, not being afraid. That last one's the dangerous one.
+The tiredness isn't only in uniform. Every shelter has its zombies, people in coats on benches who haven't slept more than three hours in a month and keep going to work.
 
-Sleep in pieces. Eat. Drink. Say "I'm bad right now"; it's a gift to the group. Make no decisions at 3 a.m.
+It's a national condition. I'm proud of it and I would pay everything to end it.
 
-Sleep isn't a luxury. It's equipment.
+*Dispatches from the Line is a work of fiction.*

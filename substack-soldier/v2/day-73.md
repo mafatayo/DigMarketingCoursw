@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 73 — Dispatch: A Pallet
 
 A pallet arrived with a flag on the side that wasn't ours and the whole position gathered to look at it.
@@ -30,8 +28,10 @@ Then he lifted a woolen hat from the sack, turned it over in his big hands, and 
 
 ---
 
-# Day 73 — Notes: Support
+# Day 73 — Notes: Pallets
 
-What helps most: people who show up, steady supplies, honest information, training and tools, solidarity, not forgetting.
+A stranger sent warm underwear. A parliament voted something. A truck turned up. Someone far away looked at a map and decided we were worth a pallet.
 
-Keep going. Don't get bored. Don't believe the rumors that we're alone.
+It matters. It also isn't enough. Both are true.
+
+*Dispatches from the Line is a work of fiction.*

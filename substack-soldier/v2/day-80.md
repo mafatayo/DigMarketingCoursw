@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 80 — Dispatch: Olha
 
 A psychologist visited, a gentle slightly rumpled woman called Olha, and I almost didn't go.
@@ -54,10 +52,10 @@ Motor, who'd been listening from the steps, grunted. "Next time I'll come."
 
 ---
 
-# Day 80 — Notes: Help
+# Day 80 — Notes: A Place to Say It
 
-Normal after bad things: jumpiness, poor sleep, numbness, sudden tears, anger out of nowhere, guilt without cause, not enjoying what you used to.
+Olha says most of the people she sees aren't soldiers. They're mothers, teachers, bus drivers. The line queues up outside her room, and nobody asks for a medal; they ask for sleep.
 
-Ask for help if it's getting worse, if you can't function, if you're drinking to cope, if you're thinking of hurting yourself. Five words: *I'm not okay. Can we talk?*
+If you can pay for one hour with a counselor in a town like this, do it.
 
-If you're reading this and hurting, please reach out to someone today: a friend, a doctor, a helpline in your country. You aren't a burden. You're a person.
+*Dispatches from the Line is a work of fiction.*

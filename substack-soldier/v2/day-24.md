@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 24 — Dispatch: Forty-One Books
 
 There's a library in a basement in the village and it has forty-one books. I counted twice. It's an addiction.
@@ -40,8 +38,10 @@ I promised her I'd try.
 
 ---
 
-# Day 24 — Notes: Our Shelf
+# Day 24 — Notes: The Gap
 
-Mine: the stories. Zenko: a thick history of the Cossacks, read aloud in parts. Bohdan: a cookbook with missing pages, read like a thriller. Halyna: a children's book with a dragon, read to us on bad nights in her nurse voice. It works. Don't laugh. Motor: a manual on growing tomatoes. He says it's relaxing.
+Mrs. Olena keeps a gap on the poetry shelf for the ones who don't bring the books back. She's got four gaps now.
 
-We don't read anything heavy about the war. It's all around. We don't need it in our pockets.
+There are shelves like that in every kitchen in this country. A coat on a hook. A cup nobody uses. A chair nobody takes.
+
+*Dispatches from the Line is a work of fiction.*

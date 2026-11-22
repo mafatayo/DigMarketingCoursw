@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 33 — Dispatch: Cold
 
 It arrived overnight and didn't ask.
@@ -34,8 +32,10 @@ I thought, not for the first time, about the other side. About men in holes like
 
 ---
 
-# Day 33 — Notes: Layers
+# Day 33 — Notes: Cold as a Weapon
 
-Head: wool hat with ears. Neck: a scarf; the neck is the door the cold walks through. Core: three layers, thin, warm, windproof, never cotton. Hands: thin gloves inside thick, so you can work. Feet: two thin pairs, not one thick; the air between is the warm part.
+They hit the power stations in winter. That isn't a rumor in the dugout, it's arithmetic. Radiators go cold. Pipes burst. Old people wrap themselves in everything and sit in the kitchen with the oven door open, which is dangerous, and they do it anyway.
 
-Don't sweat. Sweat freezes. Strip a layer when you dig, put it back when you stop. Eat. Keep dry. All of it.
+I would like someone to say clearly, in the rooms where these things are said, that to freeze a city is a decision.
+
+*Dispatches from the Line is a work of fiction.*

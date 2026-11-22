@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 84 — Dispatch: The Tin
 
 Zenko had an idea, and for once it wasn't about Plutarch.
@@ -52,8 +50,10 @@ We sealed the tin with a strip of pink duct tape. Zenko put it on the highest sh
 
 ---
 
-# Day 84 — Notes: The Tin
+# Day 84 — Notes: For the Child Who Opens the Tin
 
-If you wrote one sentence to a child who would read it in fifty years, what would it be?
+If you're reading this in a classroom, in a country with no sirens, I hope someone told you it was a long time ago.
 
-Mine is above. The tin has room.
+If someone didn't, tell them.
+
+*Dispatches from the Line is a work of fiction.*

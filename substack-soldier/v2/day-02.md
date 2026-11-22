@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 2 — Dispatch: Boots On
 
 "Boots on," said the sergeant. "Laces loose."
@@ -36,10 +34,10 @@ There was a chip in the handle. I put my thumb in it.
 
 ---
 
-# Day 2 — Notes: Counting
+# Day 2 — Notes: Evacuated
 
-Leave-to-land, if you catch both. Everyone has a formula and none of them agree. Outgoing is a thump you feel in the sternum and then a long rushing sound moving away. Incoming close you don't get a sound worth the name. Incoming far is a tearing, then a gap, then the arrival.
+It's the word we use for the wounded, for the children, for whole villages, for the cat in the basket. "Evacuated" is what you say when you haven't decided yet whether to say the other word.
 
-Motor's summary: if it's loud, it's probably not for you.
+In one week I've heard it said about four people. I don't yet know what happened to any of them, and neither, I suspect, does the person who said it.
 
-I wrote that in the notebook, and under it, *probably.*
+*Dispatches from the Line is a work of fiction.*

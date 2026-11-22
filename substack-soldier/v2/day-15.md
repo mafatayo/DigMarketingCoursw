@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 15 — Dispatch: The Middle Watch
 
 Midnight to two is the worst slot. You're too awake to sleep and too tired to be good at anything. I got it tonight, the first watch since Pasha, and nobody said anything about that, but Motor gave me his own thermos.
@@ -32,10 +30,10 @@ He took the blanket, which I hadn't offered, and I went down into the warm. The 
 
 ---
 
-# Day 15 — Notes: Thinking Hours
+# Day 15 — Notes: To the Man at the Screen
 
-On watch at 1 a.m., what I think about, in order: home, food, old arguments with my brother, where to put the couch someday, whether I'm doing this right, bees.
+You have a mother, too. I know you do. I don't forgive you, and I'm not asking to be forgiven. I'm asking you to look at the screen for one second longer than your orders say and see what is on it.
 
-What helps: a task. Counting breaths. A poem, if you know one. Zenko recites on the net when the line's dead and the men in the next dugout say it's the only thing that gets them through the second hour.
+It is a field. A road. A man with a mug. It was never an enemy. It was always just a person standing somewhere.
 
-What doesn't: checking the time.
+*Dispatches from the Line is a work of fiction.*

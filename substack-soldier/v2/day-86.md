@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 86 — Dispatch: The Count
 
 Zenko is alive. I'm putting that first because for six hours I didn't know it.
@@ -34,8 +32,10 @@ It was the nearest thing to a laugh any of us had. We gave it a minute.
 
 ---
 
-# Day 86 — Notes: Monuments
+# Day 86 — Notes: Two Lists
 
-Zenko and I once argued about statues. He said a monument is only as good as the people who stand in front of it and say the names. I lost the argument and I'm glad.
+Halyna keeps one list of soldiers and one of civilians. I asked why. She said, "Because if I put them together someone will think the second one is shorter."
 
-The Names has run past the last page. Halyna taped in extra sheets. It looks less like a record than a quilt.
+It isn't. It never has been. I'd like that known.
+
+*Dispatches from the Line is a work of fiction.*

@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 8 — Dispatch: Mud
 
 Nobody warned me about the mud. They told me about the cold and the shooting and the fear, and not one person said, Danylo, you'll think about mud more than you think about your mother.
@@ -34,8 +32,10 @@ I couldn't hear in my left ear until the next morning. Zenko wore the glasses cr
 
 ---
 
-# Day 8 — Notes: Feet
+# Day 8 — Notes: A Field You Can't Plow
 
-Wool. Two pairs, one drying. Dry feet at night even if you have to sit up with your boots off. Powder. Straight nails. Let someone else look at your heels; you can't.
+The mud is on farmland. In the spring the farmers can't reach their own fields, some for the shells, some for what's in the ground. A field you can't plow is a field the war has already won, one crop at a time.
 
-And when the next one comes, get down first.
+A man told me he's been carrying seed in his coat for a year. He doesn't know where to put it.
+
+*Dispatches from the Line is a work of fiction.*

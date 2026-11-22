@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 78 — Dispatch: The Lieutenant
 
 Maksym was hit on a Wednesday, and I'm going to tell it in the order I understood it, which wasn't the order it happened.
@@ -40,8 +38,10 @@ Yaroslav washed his hands at the bucket for twenty minutes. I counted. Then Moto
 
 ---
 
-# Day 78 — Notes: Command
+# Day 78 — Notes: What a Lieutenant Costs
 
-A young officer needs honesty about what he doesn't know, teachers, a chance to carry buckets, the courage to be corrected.
+A young man's arm. The use of it. Maksym will be fine, I'm told, in the way that people say it.
 
-Authority is earned bucket by bucket. Maksym earned his in the trench, giving orders in a steady voice with his arm in pieces. I've never seen anyone more in command.
+Someone's mother will be told it's "not life-threatening." She'll hear everything else.
+
+*Dispatches from the Line is a work of fiction.*

@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 49 — Dispatch: The Chaplain
 
 He came the morning after, as if somebody had sent for him, though no one had.
@@ -36,8 +34,8 @@ When he left he put a hand on each of our shoulders, one by one, and said someth
 
 ---
 
-# Day 49 — Notes: Faith
+# Day 49 — Notes: Burying Together
 
-A girl in the next position keeps a tiny icon in her helmet. A cheerful atheist says grace over buckwheat "just in case." A Muslim volunteer prayed beside the chaplain today, shoulder to shoulder. Someone said, "I don't know what I believe, but I believe in this tea."
+In a village near here, when someone dies, everyone brings a plank. That's how the coffin gets built. It's an old custom and it's the only thing that makes the numbers bearable: it isn't statistics, it's planks, and each one has a name written on the back.
 
-It gives grief somewhere to go. It gives words to the unsayable. Say the name. Out loud, in a room.
+*Dispatches from the Line is a work of fiction.*

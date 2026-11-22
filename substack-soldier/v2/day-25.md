@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 25 — Dispatch: Three Strings
 
 Somebody found a guitar in the ruins of a house. Three strings, a crack down the soundboard, a faded cartoon sun sticker on the back. They carried it in like a rescued puppy.
@@ -28,8 +26,10 @@ That was all he said. I didn't ask what happened to the friend. You don't.
 
 ---
 
-# Day 25 — Notes: What We Sing
+# Day 25 — Notes: Under the Ground
 
-Lullabies, more than you'd think. Men ask for them without shame. Old folk songs about rivers and girls and orchards and someone going away. Nineties rock, everyone knows the words. Newer songs written in the war, short, angry, tender. Some break your heart. Anything with a beat for the long walks.
+In the metro stations, where people sleep, somebody always has a guitar. Somebody brings a violin. A woman in a long coat plays Chopin on a piano someone carried down in pieces.
 
-Silence is underrated. I've started asking for that too.
+The concerts begin at nine. They stop when the sound above gets too loud. They start again when it's quiet. They have never been canceled.
+
+*Dispatches from the Line is a work of fiction.*

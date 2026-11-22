@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 70 — Dispatch: Water
 
 "I wonder," Yaroslav said, with one earbud out, "how many of them have ever carried water."
@@ -46,8 +44,10 @@ He laughed, thinly. "That's not Plutarch."
 
 ---
 
-# Day 70 — Notes: What I'd Ask
+# Day 70 — Notes: Accountability
 
-Honesty, even when it's bad. Competence, plain and boring. To be seen at least once where we live. Fairness in leave. And memory; not to forget us when it's over.
+The country has asked for a lot and has the right to ask for something back: honesty, competence, a hearing.
 
-Also, someone should check on the water.
+A soldier can obey and still say what he sees. It's the only way anything gets better.
+
+*Dispatches from the Line is a work of fiction.*

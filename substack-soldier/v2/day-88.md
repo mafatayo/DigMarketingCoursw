@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 88 — Dispatch: To Someone Who's Never Been
 
 You've asked me, in different ways, for three months, what it's really like. Here's my best attempt, with the understanding that it'll fail.
@@ -32,11 +30,10 @@ That's the closest I can come. If you're someone who's never been, who watches f
 
 ---
 
-# Day 88 — Notes: What They Ask
+# Day 88 — Notes: Ask Us
 
-*Are you afraid?* Yes, every day.
-*Do you hate them?* I try not to think about hate. It's heavy. I think about the person next to me. Some nights I do hate them, cleanly, for about a minute.
-*What do you miss most?* Doors. Quiet. My daughter's feet.
-*What do you eat?* Buckwheat. Pickles. What somebody's grandmother sent.
-*How can I help?* Be steady. Give a little, regularly. Don't look away.
-*Will you come back?* I'm working on it. It's the only plan I've got.
+You ask what it's like. Try asking what the children are eating. Or what the old people do at night. Or what the baker does when the flour is late.
+
+You'll learn more from the answer.
+
+*Dispatches from the Line is a work of fiction.*

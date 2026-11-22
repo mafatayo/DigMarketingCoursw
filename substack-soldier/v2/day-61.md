@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 61 — Dispatch: Snow
 
 *From here on the dispatches come further apart. The nights are long, the signal's bad, and some weeks there's nothing I'm allowed to say. I've kept the count anyway.*
@@ -22,8 +20,10 @@ I put the mug on a sandbag. There was a little skin of ice on it by the time I c
 
 ---
 
-# Day 61 — Notes: Winter
+# Day 61 — Notes: Snow in the City
 
-Days have no names. Hours have faces: the tea hour, the mail hour, the dark hour. I write one line a day in the notebook or it all smears.
+In the city the snow is beautiful and it's a problem. The radiators don't work. The old people stay in bed and tell their grandchildren they're resting.
 
-The Colonel has learned to sit on the warm side of the stove. He's very good at it.
+A volunteer goes door to door with soup. She has the key to forty flats.
+
+*Dispatches from the Line is a work of fiction.*

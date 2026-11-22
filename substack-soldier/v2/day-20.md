@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 20 — Dispatch: The Old Man
 
 A few kilometers back, there's a village, and we got half a day to help.
@@ -32,10 +30,10 @@ On the walk back none of us said much. Bohdan, ahead of me, was carrying a jar o
 
 ---
 
-# Day 20 — Notes: Who Stays
+# Day 20 — Notes: Eleven
 
-Age. Roots, graves, orchards. Animals; cows don't evacuate, somebody has to milk. Stubbornness. No money, no place, no one. And a kind of quiet defiance: *you'll have to carry me.*
+There were twenty-six families on that road last spring. Eleven now. The old man says the number as flatly as a price.
 
-They give us walnuts and apples and directions and gossip. They don't want pity.
+Somebody should be responsible for counting who left and who stayed and who couldn't do either. I would like that person to be paid and to be thanked. I would like them to be listened to.
 
-The drivers who bring them food and medicine are mostly retired teachers. I've seen one hand a woman a sack of flour and wait while she checked every inch of it. That's the war too.
+*Dispatches from the Line is a work of fiction.*

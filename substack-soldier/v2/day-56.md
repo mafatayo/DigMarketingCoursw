@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 56 — Dispatch: 5:40
 
 The best hour of my day is 5:40 a.m., and I'll defend it.
@@ -30,6 +28,10 @@ And he did, softly, the four bars drifting out across the frozen field. The sun 
 
 ---
 
-# Day 56 — Notes: Mornings
+# Day 56 — Notes: Opening
 
-Boots, quietly. A word to the dog. Kettle out, always the same spot. The first look at the sky. The first sip, and nothing else until it's done. One thought of home. One small intention: *today I'll be kind,* or *today I'll finish the watch.* Something I can keep.
+The bakery in the town opens at six. It opened the week the glass went, and the week after the shelling, and the week the flour was short. The woman who runs it says she can't stand to think of someone coming for bread and the door being locked.
+
+She's the most important person in the city.
+
+*Dispatches from the Line is a work of fiction.*

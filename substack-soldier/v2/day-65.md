@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 65 — Dispatch: Seven Days
 
 The officer who came in with the leave order brought snow on his cap and read from a sheet, and Zenko was in the middle of explaining the Treaty of Hadiach.
@@ -38,10 +36,10 @@ The truck came round the bend with one headlight out.
 
 ---
 
-# Day 65 — Notes: Before
+# Day 65 — Notes: What Leave Costs
 
-Afraid of: not being recognized, not recognizing them, flinching at a car door, being too quiet.
+Leave isn't only for the one who goes. It's a week of cooking, a week of tidying, a week of pretending you're not counting. And then a morning with a bag on the floor, and a child holding a rabbit.
 
-Hoping for: a hot bath. The third stair. Katya's hand. My mother awake and difficult.
+Whoever invented the leave pass should be asked to spend the last day.
 
-The others said, don't plan. I've been planning for six hours.
+*Dispatches from the Line is a work of fiction.*

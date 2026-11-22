@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 11 — Dispatch: Shower Day
 
 Eleven days. I'd stopped noticing the smell around day six, which Halyna says is the dangerous stage.
@@ -26,10 +24,10 @@ When I came into the dugout Vira sniffed the air and said, "Lemon. Fine. Lys can
 
 ---
 
-# Day 11 — Notes: Hot Water
+# Day 11 — Notes: Water Upstairs
 
-One shower: about forty liters, an hour of boiler time, a driver, a day, a risk. Thirty men a day if everything goes well. So ten minutes under that bucket is somebody's entire morning.
+In the towns the shower isn't hot either. In some buildings there's no water at all above the third floor, and the old people carry it up in plastic bottles, a flight at a time, resting on each landing.
 
-At home I used to stand under the tap for twenty minutes thinking about email.
+If you want to know what this war is, don't picture a battlefield. Picture a woman of seventy-eight on a landing with two bottles.
 
-If someone offers to wash your clothes, say yes. Don't be proud.
+*Dispatches from the Line is a work of fiction.*

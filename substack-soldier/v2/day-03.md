@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 3 — Dispatch: Soup
 
 I met them over a pot of soup, which turned out to be an argument, so that's how I'll do it.
@@ -42,10 +40,10 @@ I never worked out whether he meant the section or something underneath it. Vira
 
 ---
 
-# Day 3 — Notes: Callsigns
+# Day 3 — Notes: Before
 
-You don't choose. If you choose you get "Wolf" and by week three your own side calls you Wolfie.
+Every uniform in this war is a borrowed one. The nurse was on a ward in Lviv. The sergeant fixed buses. The boy was in third year at university. The soldier you imagine, the one who was always going to be a soldier, is rare here. We are mostly people waiting to go back to what we were.
 
-Pot, next dugout, dropped one on his own foot the first morning. Lamppost drives the supply truck. Anyone from Odesa is Sea, whatever their name. Mine happened on the radio. I'll tell you in a few weeks.
+Ask the nurse what she'd rather be doing. She says: anything quiet.
 
-Rule: you never use a real name on the net. Not angry, not when someone's hurt.
+*Dispatches from the Line is a work of fiction.*

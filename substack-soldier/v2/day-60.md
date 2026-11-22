@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 60 — Dispatch: Pockets
 
 Sixty days, and I had nothing to say about it, so I emptied my pockets onto the bunk instead. Halyna says it's a way to take stock when the head won't.
@@ -34,8 +32,12 @@ I turned out the lamp. I could hear the ground, a long way off, doing whatever i
 
 ---
 
-# Day 60 — Notes: To Do
+# Day 60 — Notes: What I'd Ask
 
-Learn the whole of Motor's song. Eat, sleep when possible. Keep the book. Write one honest letter.
+I'd ask three things.
 
-Find out what the boy at the junction was going to say to his mother.
+That you keep looking. That you ask for the ordinary details, the bread, the dog, the window. And that you tell someone, in the room where you work, that the people on both sides of this line have mothers.
+
+That's it. That's the whole appeal.
+
+*Dispatches from the Line is a work of fiction.*

@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 13 — Dispatch: The Colonel
 
 He turned up on a Wednesday, which is how I know it was fate, because nothing good ever happens on a Wednesday.
@@ -36,10 +34,10 @@ I'll try to deserve that.
 
 ---
 
-# Day 13 — Notes: Animals
+# Day 13 — Notes: Left Behind
 
-Dogs attach to units like barnacles. Most are strays. A few were left behind when families fled, and they wait by the same gate, every day, for the people who aren't coming back. We feed those. Nobody says why.
+When a family leaves in a hurry they tell the dog it's for two days. The dogs wait at the gates. We feed those. Nobody asks whose.
 
-Cats turn up in command posts and sit like senior officers. Birds are barometers: when they stop, we stop. A hen walked through a checkpoint yesterday like a tax inspector.
+There are thousands of them. Nobody counts. It's a small thing to put in an article about a war and it's the thing I can't stop thinking about.
 
-An animal doesn't care about yesterday. Its only question is *are you here, and are you kind?* On this ground that counts as a fair test of anyone.
+*Dispatches from the Line is a work of fiction.*

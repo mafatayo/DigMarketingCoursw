@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 66 — Dispatch: The Third Stair
 
 I'd rehearsed a dignified entrance on the train. Shoulders back, steady voice. Instead I climbed four flights with my bag banging my knees and stopped on the landing to catch my breath, and put my foot on the third step from the top, and it creaked.
@@ -38,8 +36,10 @@ And the corridor. The mattress folded against the wall. A flashlight on a hook a
 
 ---
 
-# Day 66 — Notes: Quiet
+# Day 66 — Notes: Go-Bags
 
-Things I did in the first day: closed doors, then didn't want to. Stood in the shop with a basket for ten minutes in front of a shelf of cheese. Wept at a hot tap.
+Children's go-bags. A little backpack by the door with a toy, a bottle of water, a card with their name and a phone number written in marker, in case.
 
-At three a.m. I couldn't sleep. The mattress was too soft, the room too quiet, no stove, no snoring, no dog. I sat on the kitchen floor with my back to the fridge, and a small hand slid into mine. She didn't say anything. We stayed there until it got light.
+Think of the person who thought of that. Think of what it takes.
+
+*Dispatches from the Line is a work of fiction.*

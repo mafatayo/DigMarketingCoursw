@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 43 — Dispatch: Currency
 
 After the blackout, electricity became money.
@@ -40,8 +38,10 @@ We charged everything. Every phone, every radio. Zenko charged a tiny mp3 player
 
 ---
 
-# Day 43 — Notes: Exchange Rates
+# Day 43 — Notes: The Phone Is a Lifeline
 
-One phone charge: roughly one call home. A shared battery, ten minutes: a favor, always repaid. A working torch: a small fortune. A radio battery: worth more than gold. A bake-sale generator: beyond price.
+Everyone here has a power bank. It isn't for games. It's so that a mother in one city can hear the voice of a son in another at the end of the day.
 
-Scarcity makes people generous. Nobody keeps score. Except Vira.
+Charge someone's phone this week. It's a small gift. It might be the one that matters.
+
+*Dispatches from the Line is a work of fiction.*

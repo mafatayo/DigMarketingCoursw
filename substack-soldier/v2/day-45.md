@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 45 — Dispatch: No Phones
 
 We were ordered off our phones for three days, and I found out how much of my mind lived inside one.
@@ -26,8 +24,10 @@ Behind me in the dugout I heard Vira say, to nobody, in a voice with nothing in 
 
 ---
 
-# Day 45 — Notes: Without
+# Day 45 — Notes: Silence
 
-Runners. Pencil and scrap. Hand signals: thumb up, flat palm, finger to lips. Shared plans, so nobody needs to ask. Faces. Waiting.
+When we go quiet on the phones, someone's mother is looking at hers. She does it every ten minutes. She knows it's not a good sign and not a bad one, and she knows that knowing doesn't help.
 
-I'd been using my phone not to reach people but to avoid the ones in front of me. It's easy to look down. Harder to look up.
+If you know a family waiting for a call, call them. Don't say anything. Just call.
+
+*Dispatches from the Line is a work of fiction.*

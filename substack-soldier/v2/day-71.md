@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 71 — Dispatch: The Line
 
 Not politics, I take it back. We argue about plenty, and almost none of it is the big stuff.
@@ -36,8 +34,10 @@ I've started keeping a tally of what we agree on. It's long. It includes: tea, d
 
 ---
 
-# Day 71 — Notes: Big View, Small View
+# Day 71 — Notes: What We Argue About
 
-A good plan fails with cold feet. Warm feet fail with no plan. The map sees the shape of the whole, the thing behind the hill. The front sees the mood of the men, the state of the mud, the exact weight of a stretcher.
+We argue about what the army should do. It's not a failure of unity. It's a country with its eyes open, whose people have decided that fighting for something means being allowed to question it.
 
-I wish a general would sometimes carry water, and a soldier would sometimes read a map.
+That's the thing worth defending.
+
+*Dispatches from the Line is a work of fiction.*

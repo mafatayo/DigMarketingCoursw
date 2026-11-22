@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 72 — Dispatch: Receipts
 
 I've been too polite about this: some of us are very angry about the people who steal.
@@ -32,8 +30,10 @@ On the night of the rumor, Vira said something that stuck. "I've decided to be i
 
 ---
 
-# Day 72 — Notes: Receipts
+# Day 72 — Notes: Receipts, Again
 
-Write it down: dates, items. Tell someone who can act, and follow up. Support the honest ones loudly. Don't stop giving; the thieves must not teach us to be stingy. Ask for receipts, politely, from everyone.
+Where did it go? That's the question every honest person asks. It isn't an insult. It's a basic respect for the people who gave.
 
-The country we're fighting for has to be better than the one that started this. Otherwise why?
+The civilians who gave their wages deserve a receipt. So do the dead.
+
+*Dispatches from the Line is a work of fiction.*

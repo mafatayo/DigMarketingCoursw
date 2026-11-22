@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 75 — Dispatch: Thaw
 
 It begins with a smell.
@@ -36,8 +34,10 @@ And I went.
 
 ---
 
-# Day 75 — Notes: Hope
+# Day 75 — Notes: Signs of Spring
 
-Dangerous because it makes you careless, or bitter if it's dashed. Necessary because without it nobody gets up.
+Everyone here knows what spring means. It means fields, and it means what the winter was saving. In the markets they're selling seeds. People are buying them anyway.
 
-I carry it lightly, like an egg. Small hopes: tomorrow's tea, next week's mail, the first green shoot by the sandbags.
+That's the answer to the war, I think: someone planting.
+
+*Dispatches from the Line is a work of fiction.*

@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 81 — Dispatch: Monday
 
 A man came to visit from the rear, a veteran of an earlier phase of all this, with a prosthetic leg and a stick, and he asked us the question none of us could answer.
@@ -30,8 +28,10 @@ I wrote my own list, the first line trembling a little. *Sound. Quiet. A room th
 
 ---
 
-# Day 81 — Notes: After
+# Day 81 — Notes: Monday
 
-Don't wait for the end to start thinking. List what you loved as a child. List what you're good at now; it's different than before. Talk to someone who's done it. Take your time; two years is normal.
+When it's over there'll be a Monday. A city to rebuild, a half-generation of children who've learned to listen for planes. Veterans looking for work. Widows looking for answers.
 
-A soldier isn't all you are.
+I'd like the plan for Monday written now, by people who've been in the basement.
+
+*Dispatches from the Line is a work of fiction.*

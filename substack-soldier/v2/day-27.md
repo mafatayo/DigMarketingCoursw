@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 27 — Dispatch: Mama
 
 The message came at four in the afternoon, which is a strange hour for bad news. I'd expected it at night. Instead it was a bright flat gray afternoon with Bohdan arguing about socks in the corner and the kettle just starting. My brother. Four words. *Call me. It's Mama.*
@@ -46,10 +44,10 @@ When I came down, the dugout went quiet the way it does. Nobody asked. Halyna lo
 
 ---
 
-# Day 27 — Notes: Distance
+# Day 27 — Notes: The Stairs
 
-No hand to hold. No hospital visit. Guilt that comes without invitation. The world at home keeps going and you hear it in pieces.
+Statistics that don't make the news: how many old people break a hip running to a shelter. My mother's one. There's a ward in her hospital with eleven of them. They didn't die. They fell.
 
-What helps: say it out loud to one person, the right one. Do one small thing for them, write a letter, send money. Let yourself feel it for an hour. Then the next job.
+Nobody counts the ones who fall.
 
-Trust the people there. My brother has her. I have to believe it.
+*Dispatches from the Line is a work of fiction.*

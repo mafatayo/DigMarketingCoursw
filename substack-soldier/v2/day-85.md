@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 85 — Dispatch: The Night
 
 I'm going to tell this in pieces, because that's how I have it.
@@ -44,8 +42,10 @@ Halyna had him. She'd had him for ten seconds already. She was saying his name a
 
 ---
 
-# Day 85 — Notes: Morning
+# Day 85 — Notes: Shelter Count
 
-By dawn it was quiet. I counted the cups on the shelf. I counted the people in the dugout. I counted four times.
+In the cities that same night, in the cellars and the metro, there were people who listened to it and counted. Children asleep on coats. Old women with their hands over the ears of a dog. A man reading the same page of a book.
 
-We held. I know that's the word that goes in the report. It doesn't say what it cost. It says *held.*
+Nobody wrote about them. They are the war too.
+
+*Dispatches from the Line is a work of fiction.*

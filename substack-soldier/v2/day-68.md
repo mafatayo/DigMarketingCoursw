@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 68 — Dispatch: Promise
 
 "Promise," said my daughter, and I couldn't.
@@ -36,6 +34,10 @@ I told him about the eggs.
 
 ---
 
-# Day 68 — Notes: Back
+# Day 68 — Notes: Promises
 
-First night: the silence in reverse. I couldn't sleep without the corridor sounds. The Colonel got on my feet at midnight and stayed.
+A child asks you to promise. You say you'll try. She tells you it isn't a promise.
+
+She's right. It's the oldest argument in the world and she wins it every time.
+
+*Dispatches from the Line is a work of fiction.*

@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 26 — Dispatch: The Goal
 
 The argument started at lunch and ended, I think, around midnight, and in between I learned that men who've been shot at together will fight to the death over a disallowed goal from years ago.
@@ -46,8 +44,10 @@ I lay on the bunk later grinning at the ceiling, and thinking: that's the thing.
 
 ---
 
-# Day 26 — Notes: Small Defiances
+# Day 26 — Notes: Watching the Match
 
-Argue about sport, fiercely. Shave on Sundays. Make birthday cake out of biscuits. Make tea properly. Tell the old jokes. Say "when I'm home." Look at the sky on purpose and name a constellation.
+There's a basement in a town on this line where forty people gather on match nights, around a phone propped on a stack of tires, to watch a game they've watched for thirty years. Whoever's on duty holds the aerial.
 
-The war tries to make you only one thing. Everything ordinary is a small refusal.
+The shell lands, they pause, they go back. It's the most stubborn thing I've seen. It's not about football.
+
+*Dispatches from the Line is a work of fiction.*

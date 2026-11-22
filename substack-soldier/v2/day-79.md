@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 79 — Dispatch: Listening Under
 
 Yaroslav asked me to teach him to listen.
@@ -64,8 +62,10 @@ I looked at Motor. Motor looked at me. Neither of us said it. I'd made him bette
 
 ---
 
-# Day 79 — Notes: Teaching
+# Day 79 — Notes: Teaching Children to Listen
 
-Start with their question, not your lecture. Show, then explain. Eyes closed first. Ten minutes beats an hour. Praise the small thing. Let them surpass you; it's the whole point.
+Mothers here teach their children to hear the difference between a plane and a drone, between a bang and a thunderclap. It's a skill. It's the one thing I'd take back from the world if I could.
 
-Someone taught me, a quiet old engineer called Mr. Ilko. I never thanked him.
+I taught a nineteen-year-old to do it this month. He's good. I'm not proud.
+
+*Dispatches from the Line is a work of fiction.*

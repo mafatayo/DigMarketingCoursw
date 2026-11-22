@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 30 — Dispatch: One Month
 
 Nobody made a fuss, which I appreciated. Motor didn't announce it. Vira didn't bake anything. But at breakfast Halyna added an extra spoon of sugar to my tea, slid it across the table without a word, and I understood the whole thing.
@@ -41,18 +39,10 @@ I laughed, a real one, a big one. It rolled out across the frost. We went down f
 
 ---
 
-# Day 30 — Notes: To the Man at the Bus Stop
+# Day 30 — Notes: What We Want
 
-Dear Danylo, with the bag,
+People ask what we want. Not pity. Pity expires in a week.
 
-You're about to walk past a bakery. You think the smell will follow you. It will. Keep it.
+We want attention, which is slower and harder to give. We want you to keep looking. We want the people who decide things in rooms to remember that the phrase "the situation in Ukraine" means a woman on a landing carrying two bottles of water.
 
-You think you're not brave. You're right. Don't worry about it. Courage here is carrying water and saying "I'll take the next watch," nothing like what you imagined.
-
-You'll be afraid a lot. It won't go away. You'll learn to walk next to it, like a dog.
-
-You'll meet people you'd never choose, and be glad they're yours. Hold on to them. Don't get used to how many there are.
-
-Call Katya more. She's braver than you.
-
-— Lys
+*Dispatches from the Line is a work of fiction.*

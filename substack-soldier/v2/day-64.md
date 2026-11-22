@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 64 — Dispatch: Video
 
 "Lys. Phone. Post. Now," said Motor, which is how I knew the signal was good.
@@ -28,8 +26,10 @@ At ten minutes there was a message. One word. *Fine.*
 
 ---
 
-# Day 64 — Notes: Screens
+# Day 64 — Notes: Mid-Call
 
-The call ends and you're back in the snow. I've learned to walk for ten minutes before I go in.
+There isn't a family in this country that hasn't had a call cut in half by a siren. It's the shared experience. You say "I love you, I have to go," and you hang up, and then you wait.
 
-She sent a photo that evening. Sonya in the corridor in a hat and a blanket, holding a flashlight under her chin, pulling a monster face.
+If you've ever had to hang up on someone you love, you understand us better than you think.
+
+*Dispatches from the Line is a work of fiction.*

@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 17 — Dispatch: Twenty-Three
 
 Bohdan turned twenty-three today and tried very hard to keep it secret, and failed, because Vira reads everybody's documents. She calls it administrative awareness. He calls it being stalked.
@@ -38,8 +36,10 @@ I didn't say it. I ate the cake.
 
 ---
 
-# Day 17 — Notes: Rituals
+# Day 17 — Notes: Candles
 
-Touch the doorframe going out. Nobody remembers who started it. Say "see you," never "goodbye." Leave the last mug on the left for whoever comes in cold. Read one line of a letter aloud at breakfast, a line, not the letter. Tap the table twice before eating, a toast with no words. Wind Zenko's old watch each evening because he asked us to and didn't say why.
+A mother in a basement shelter made her daughter a birthday cake out of biscuits and condensed milk and put a candle on it, one of the emergency ones. Eleven children and four old people sang. The little girl blew it out and everyone laughed because the lights had just gone anyway.
 
-None of it is serious. All of it is a rope.
+It's the same cake we make. It tastes the same in every shelter.
+
+*Dispatches from the Line is a work of fiction.*

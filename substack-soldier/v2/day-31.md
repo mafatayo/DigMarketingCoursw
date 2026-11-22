@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 31 — Dispatch: The Bird
 
 You hear it before you decide to.
@@ -38,8 +36,10 @@ Later Bohdan flew a patrol of his own. I stood behind him and watched the little
 
 ---
 
-# Day 31 — Notes: The Sound
+# Day 31 — Notes: Not Looking for Us
 
-A pitch like a very high hum with a ragged edge where the little motors fight. A faint pulse inside it as four propellers disagree. When it turns, the pitch bends. When it hovers, it sounds like thinking.
+Some of the machines overhead aren't looking for soldiers at all. I can't say more than that. A bakery has a roof and so does a bus. They don't need to be what they were looking for.
 
-I used to love that sound. I once made a short film with a drone shot over a field of sunflowers, the camera drifting up like a bee. I won't hear it the same way again.
+It's why the grandmother in the village now hangs her washing inside.
+
+*Dispatches from the Line is a work of fiction.*

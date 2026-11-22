@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 34 — Dispatch: Halyna's Hands
 
 Halyna's hands are the most important thing in the dugout and nobody ever says so.
@@ -30,10 +28,10 @@ Later, going out, I saw her kneel by the door with her bag, checking it. The tou
 
 ---
 
-# Day 34 — Notes: Hands
+# Day 34 — Notes: Basement Ward
 
-I'm not a medic and this isn't advice. Take a course from someone who knows. A real one, with a real mannequin and a real instructor.
+The doctors worked a whole night in a ward with no windows and told me about it afterward in the same voice they'd use for a shopping list. A man with a hand. A child with a lung. A woman who kept apologizing for the blood.
 
-Practice beats knowledge. I'd read it. My hands didn't know it. Calm is a skill. Write the time on the arm.
+Everyone I know who works in those wards is somebody's brother. I'd like them given medals. I'd like them given sleep.
 
-She never once said *if.*
+*Dispatches from the Line is a work of fiction.*

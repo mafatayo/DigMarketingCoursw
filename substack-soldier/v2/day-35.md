@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 35 — Dispatch: Evacuation
 
 I'll tell this one carefully, and leave out everything that could be used. What I can give you is how it felt.
@@ -38,10 +36,10 @@ I never learned his name. I asked her, much later. She said she hadn't had time 
 
 ---
 
-# Day 35 — Notes: The Drivers
+# Day 35 — Notes: Volunteers Die Too
 
-They carry stretchers, bandages, thermoses, steady voices, and a vehicle that's often old and bought with donations. Nurses. Mechanics. Students. Retired teachers. Taxi drivers. Girls with ponytails.
+The drivers aren't soldiers. They have no helmets worth the name. Some of them have died on those roads and nobody gave a speech.
 
-They go where the road is worst, at the worst hour, and bring back whoever they can. Not always alive.
+When you read about casualties and the number is "military," remember that there's a second list nobody keeps in the same place.
 
-If anyone deserves a statue it's them. Not the commanders. The ones in the vans.
+*Dispatches from the Line is a work of fiction.*

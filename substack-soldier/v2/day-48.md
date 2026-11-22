@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 48 — Dispatch: Bohdan
 
 I've written this three times and burned two of them in the stove. This is the one I can send.
@@ -34,10 +32,10 @@ On the shelf the notebook with the green cover lay where he'd left it. Fifty-thr
 
 ---
 
-# Day 48 — Notes: Why Not
-
-I won't write what belongs to his family. I won't write it for shock. I won't write it for pity; don't send pity.
-
-I do write that it happens. Silence would be a lie, too. And I write what the rest of us do afterward, because that's the part worth knowing.
+# Day 48 — Notes: Twenty-Three
 
 He was twenty-three. His birthday was a month ago. We made a cake out of biscuits.
+
+I don't want to be told what his death was for. I want to be told what his life was. Ask me, and I'll tell you for an hour.
+
+*Dispatches from the Line is a work of fiction.*

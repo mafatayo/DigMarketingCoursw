@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 6 — Dispatch: The Scarf
 
 The boy who brought the mail was wearing the ugliest scarf I've ever seen, orange and brown, with a fringe, knitted by someone who clearly had strong views on color and none on length. It went round his neck about four times and he kept getting it caught in the truck door. I'm starting with the scarf because that's what I looked at for the first minute. I was trying not to look at the bag.
@@ -24,14 +22,10 @@ I wore the socks to bed. They were far too hot. I wore them anyway.
 
 ---
 
-# Day 6 — Notes: Sonya
+# Day 6 — Notes: Mail Is for What Can Wait
 
-If this reaches you, kid, forgive the handwriting. It's pencil, I'm on a crate.
+A nurse told me that families phone with the news that can't wait, and write with the rest. So when a letter comes in a hurry, with the handwriting slanted, it's worth reading the middle.
 
-The socks are on. Mama says you chose the color. They're very good. The man in your drawing has the best hands I've ever seen on a person and I'm taking them.
+Half the country is writing letters like that now. A tap fixed. A window taped. *I'm okay.* The hard sentence goes between the eggs and the weather.
 
-Do what Mama says at the alerts. Go to the good wall. I know you like the other one.
-
-Tell Marmalade hello.
-
-Papa
+*Dispatches from the Line is a work of fiction.*

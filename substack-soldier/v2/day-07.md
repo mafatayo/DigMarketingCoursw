@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 7 — Dispatch: Sunday
 
 Zenko shaves on Sundays. It's the only reason I knew it was Sunday. With cold water and a square of mirror propped on a nail, and the rest of us watching as if it were theater.
@@ -32,8 +30,10 @@ Three each. It wasn't a good breakfast; it was a breakfast. Vira, with her mouth
 
 ---
 
-# Day 7 — Notes: Week One
+# Day 7 — Notes: Basement Sunday
 
-Down about three kilos. Showers: none. Letters: one in, four out. Blisters: six; Halyna has opinions. Times scared: stopped counting at eleven.
+They hold services in the basement of a ruined church now. Forty people, a priest, a single candle, singing so quietly it's almost not singing. They've worked out how quiet is quiet enough.
 
-Things I miss that I didn't expect to: doors. Closing one behind me.
+I think that's the most Ukrainian thing I've heard: a congregation that has learned to pray under the volume of the war.
+
+*Dispatches from the Line is a work of fiction.*

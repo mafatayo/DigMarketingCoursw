@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 40 — Dispatch: Magpie
 
 A man came through last week from a staff office, a clean pink well-fed sort of man in a very neat jacket. He walked in, looked round, and addressed Motor. "Sergeant, where's your radio operator?"
@@ -40,8 +38,10 @@ I notice something else, too. She's the only person in the dugout who hasn't cri
 
 ---
 
-# Day 40 — Notes: Earned
+# Day 40 — Notes: Magpie
 
-It's the same for everyone: show up, be competent, be kind, be honest. The loudest people here are often the least trusted.
+Vira has a sister in a city under the line. They talk every Sunday for four minutes, which is all the signal allows. Vira keeps a list of what she wants to say and crosses them off as she goes.
 
-It's harder for some. They have to do it twice. We all know it. We say "that's her job, ask her," and mean it.
+Women in this war are doing everything that men are doing and also this, the Sunday call, the list.
+
+*Dispatches from the Line is a work of fiction.*

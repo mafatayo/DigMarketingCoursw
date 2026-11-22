@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 74 — Dispatch: Weather
 
 Zenko asked me something strange at dinner. "When did you last see a report that made you feel seen?"
@@ -32,10 +30,10 @@ I said that last part more quietly than I meant, to the page, in the dark, and t
 
 ---
 
-# Day 74 — Notes: Forgotten
+# Day 74 — Notes: Don't Let Us Become Weather
 
-To the tired: it's okay. You don't have to feel it all the time. Do one thing.
+When the war becomes background, the people in it become background too. I understand why. Nobody can hold it all.
 
-To the ones who keep reading: you matter more than you know.
+But a woman on a landing with two bottles doesn't become weather because the news changed. Keep one story. Keep one name.
 
-To anyone who feels forgotten, in any war, any illness, any lonely room: you exist. Someone is thinking of you.
+*Dispatches from the Line is a work of fiction.*

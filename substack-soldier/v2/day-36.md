@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 36 — Dispatch: Smell
 
 Nobody tells you fear has a smell, so let me correct the record.
@@ -44,16 +42,10 @@ I lay there and didn't say any of it.
 
 ---
 
-# Day 36 — Notes: Fears
+# Day 36 — Notes: The Siren
 
-Dying: the obvious one, and not the biggest.
-Being why someone else does.
-Freezing when it counts.
-Not being believed afterward.
-Going home changed.
-A call at the wrong hour.
-Forgetting my daughter's voice.
+A girl in a shelter asked me whether the sirens were angry. I said no. She asked whether they were sad. I said maybe. She nodded and said, "I think they're scared. That's why they're so loud."
 
-What helps: say it to one person in daylight. A small task with the hands. Breathe in four, out six. Remember the man next to you is scared too.
+I haven't heard one the same way since.
 
-Don't call yourself a coward. A coward wouldn't have come.
+*Dispatches from the Line is a work of fiction.*

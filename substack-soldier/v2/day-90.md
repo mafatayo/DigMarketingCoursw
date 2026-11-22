@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 90 — Dispatch: Four Bars
 
 It's early. The kettle's on. There's a thin silver light in the east and a lark has already begun, going up and up into a sky the color of the inside of a shell.
@@ -42,12 +40,12 @@ I just listen.
 
 ---
 
-# Day 90 — Notes: Not an Ending
+# Day 90 — Notes: End It
 
-Put the kettle on. Fill it to the line. Whoever empties it fills it. Look after the person next to you. Say the names. Listen under the first sound.
+Here's my appeal, and it's only one sentence.
 
-Be gentle. It's very easy. It's very rare.
+Whoever can end this, end it. End it in a way that doesn't leave a child with a go-bag by the door for the rest of her life. End it so the baker can sleep. End it so the old woman can put a cross on a calendar every day.
 
-*Dyakuyu.*
+Please. We're tired. We've counted enough.
 
-— Lys
+*Dispatches from the Line is a work of fiction.*

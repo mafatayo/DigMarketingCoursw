@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 21 — Dispatch: Pickles
 
 A box came today addressed in blue ink, underlined twice: *Any Soldier, Please.* That was all. No name, no town. Vira opened it with the reverence she reserves for cargo that might explode or make her cry.
@@ -28,8 +26,10 @@ I also left one jar unopened, on the shelf, next to Pasha's razor. Nobody asked 
 
 ---
 
-# Day 21 — Notes: What Arrives
+# Day 21 — Notes: What She Prayed
 
-Socks, scarves, hats. Children's drawings signed with small hearts. Chocolate, a lot of it. Handwarmers. Tea in tins and bags and a coffee jar. A plush rabbit "for luck," now living in Bohdan's pocket. A brick of homemade bread still faintly warm. Seeds in an envelope: *for when you're home.*
+The woman who sent the pickles kneels at six every evening. I wrote to ask what she prays for. She wrote back, three lines. *For the boys. For the girls. For the people on the other side who have mothers too.*
 
-A package isn't about the contents. It says: *someone thought of you for an hour.* That's the cargo.
+I read the last line twice. I think she's wiser than the people who run the war.
+
+*Dispatches from the Line is a work of fiction.*

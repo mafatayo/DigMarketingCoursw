@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 1 — Dispatch: Ten to Five
 
 The alert app goes off most nights, so when my phone started buzzing against the nightstand at ten to five I did what everyone in Kharkiv does. I lay still and counted the gap after the buzzing. Under forty seconds before the first thud and it's close, you grab the child and go to the corridor, two walls between you and the street. Over forty and you're being warned about somewhere else, and you're allowed to hate your phone and go back to sleep.
@@ -28,10 +26,10 @@ It was only at the second stop that I remembered the tea. I'd left about half of
 
 ---
 
-# Day 1 — Notes: The Bag
+# Day 1 — Notes: The Corridor
 
-In: four pairs of wool socks, pencils (pens freeze), a printed photo of Katya and Sonya (phones die), a red headlamp, foot powder, a notebook.
+Almost every flat in my city has a corridor with a mattress folded against the wall. Ask any child which wall is the good wall. The adults argue about it. The children know.
 
-Out, later: a hardcover book, read in one night, too heavy. Three cotton T-shirts. The good razor.
+Nobody planned a country where a six-year-old has a favorite wall. I'm not writing this to be pitied. I'm writing it so that the next time you read the word "situation," you picture a hallway with no windows and a flashlight on a hook at the height of a child.
 
-The sergeant went through my bag the first night and held the razor up between two fingers. "You're an optimist," he said. He didn't mean it kindly. I gave it to the man in the next bunk. He's using it. He says it's very good.
+*Dispatches from the Line is a work of fiction.*

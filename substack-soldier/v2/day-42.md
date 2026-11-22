@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 42 — Dispatch: Dark
 
 It happened at 6:14 p.m., I know because Vira was looking at the clock when the lamp went out.
@@ -32,10 +30,10 @@ Then I thought of the strikes, and who had ordered them, and what for, and that 
 
 ---
 
-# Day 42 — Notes: Blackout
+# Day 42 — Notes: A Cold Night
 
-No light, no charging, no news. Strange how quickly that last one gets uncomfortable.
+When the grid fails, the hospitals switch to generators and the generators have fuel for as long as they have fuel. Everyone in the country knows the number of hours. People send each other the number.
 
-What helped: candles, a hand-crank torch, warm bodies close together, one phone on, the rest off. Cards. Stories. A plan for who goes where.
+At two a.m. in a city I love there are old people lying in the dark, in their coats, listening to a fridge that isn't running.
 
-Home is dark too. I keep thinking about that.
+*Dispatches from the Line is a work of fiction.*

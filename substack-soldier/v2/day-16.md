@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 16 — Dispatch: The Fox
 
 I promised the story of my callsign and I'm a man of my word, even when I'd rather not be.
@@ -38,10 +36,10 @@ I looked at Vira. She was sitting very still with her hand flat on the set.
 
 ---
 
-# Day 16 — Notes: Jokes
+# Day 16 — Notes: The Net at Night
 
-Dark is fine. Cruel isn't. You can joke about your own cooking, not about someone's brother.
+The net carries more than us. Some nights a woman from a village calls the first number she can find to ask whether the position by the river is still there, because her son's in it, and she hasn't heard.
 
-A nickname means somebody likes you. A man who's been silent three days doesn't need a joke. He needs someone beside him, and nothing said.
+Vira answers every one. She has a rule: she never says "I can't tell you." She says, "I'll find out," and then she finds out, even when the answer isn't one she wants to give.
 
-I used to think humor was a luxury. It's closer to a tourniquet.
+*Dispatches from the Line is a work of fiction.*

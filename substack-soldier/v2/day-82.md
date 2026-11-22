@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 82 — Dispatch: The Bridge
 
 I found the bridge in the green notebook.
@@ -32,8 +30,10 @@ I should say that none of us said who'd begun it. We left the bridge in the cent
 
 ---
 
-# Day 82 — Notes: Builders
+# Day 82 — Notes: Who Builds the Bridge
 
-Everyone here's a builder the army has put temporarily in a different trade. Bohdan could have rebuilt a town's electronics from scrap. Motor could run a city's transport. Halyna could staff a clinic by herself.
+Bohdan drew a bridge. I'd like it built. And I'd like the people who build it to be paid properly and to be thanked and to have their names on a stone beside it.
 
-I hope that when it's time, someone hands us the shovels and the plans and says, *go.*
+It's the same thing I want for everyone.
+
+*Dispatches from the Line is a work of fiction.*

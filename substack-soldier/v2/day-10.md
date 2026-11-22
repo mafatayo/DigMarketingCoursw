@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 10 — Dispatch: A Quiet Day, Hour by Hour
 
 **07:10.** Bohdan says "It's quiet today" at breakfast. The whole table stares at him. Vira throws a spoon. It misses, because she's a radio operator and not a pitcher, and clangs off the stove. Bohdan apologizes to the spoon.
@@ -36,8 +34,10 @@ I laugh. Out loud, alone, in a field. I laugh till my eyes water and then I sit 
 
 ---
 
-# Day 10 — Notes: Sounds
+# Day 10 — Notes: Good Days
 
-Low rumble, long: far. Sharp crack, close: down. A rising whistle: don't wait to understand. A buzz like a big insect: small drone, and you learn the direction without looking. Silence, sudden, after loud: the worst one. Ticking, scratching, flapping: wire, bag, tarp. Still gets you.
+An old woman I met keeps a calendar on her wall and puts a small cross on the days that were quiet. Not the bad days; the good ones. "I like to see how many," she said.
 
-At home my job was removing sounds nobody wanted. I thought that made me a good listener.
+She had eleven that month. She showed me. She was pleased.
+
+*Dispatches from the Line is a work of fiction.*

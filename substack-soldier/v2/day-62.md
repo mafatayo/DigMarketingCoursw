@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 62 — Dispatch: Seven Dishes
 
 The debate about the potatoes ran four days.
@@ -26,8 +24,10 @@ There were five mugs too many on the crate by the end, because everyone had take
 
 ---
 
-# Day 62 — Notes: Shrunk
+# Day 62 — Notes: Basements
 
-Twelve dishes became seven; we counted the honey. Hay under the cloth, from a barn. Garlic at the door, Vira's, though she says she isn't superstitious. First star. Carols, indoors, low.
+In some cities this year the Christmas supper is eaten underground. Twelve dishes on a crate. A child asks why the candle is so small, and the answer is "so it lasts."
 
-A call home, each of us in turn, out in the cold, and nobody timing it.
+Nobody sings loudly. Everybody sings.
+
+*Dispatches from the Line is a work of fiction.*

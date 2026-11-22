@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 22 — Dispatch: Tanks
 
 At the edge of the village there's a boy of about nine who sits on a wall every afternoon with a sketchbook and watches us pass.
@@ -64,8 +62,10 @@ I said I thought so. I'm trying to believe it.
 
 ---
 
-# Day 22 — Notes: Children
+# Day 22 — Notes: Drawings
 
-I don't have the right to speak for the children who live it. Only what I see from the edge: they know more than we think. The sounds, the words, the codes. They draw what's around them. They play at sirens and shelters.
+A teacher in a refugee center told me that in the first week the children all drew tanks. In the second week, flags. In the third, houses, houses with two halves and a fence.
 
-They're also still children. They fight about a ball. They want sweets. They're kinder than anyone I know.
+By the sixth week, one boy drew a dog. His teacher kept it. She says it's the most important thing she's been given.
+
+*Dispatches from the Line is a work of fiction.*

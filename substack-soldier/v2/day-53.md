@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 53 — Dispatch: The Ceasefire
 
 The rumor came on a Tuesday, and by Wednesday it had legs, a beard, and a pension.
@@ -40,8 +38,10 @@ That night, though, the shelling was worse than it had been in a week. As if the
 
 ---
 
-# Day 53 — Notes: Rumors
+# Day 53 — Notes: Ending It
 
-If it makes you very angry, pause. If it makes you very happy, pause. Who benefits from you believing it? Can you find the original source, not a screenshot of a screenshot? Is it too clean? Real events are messy.
+Everyone here wants it to stop. Nobody's allowed to say it first; it sounds like surrender. So we say it quietly, over tea.
 
-Wait a day. Most rumors die by lunch.
+What we mean is: we want it to end in a way our children don't have to fight again. We want it to end because it's finished, not because someone's tired.
+
+*Dispatches from the Line is a work of fiction.*

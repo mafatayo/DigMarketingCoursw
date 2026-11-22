@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 28 — Dispatch: An Envelope
 
 The next day it was Zenko's turn, and I watched how a man receives good news after a month of none.
@@ -38,8 +36,10 @@ I looked at him then. He was holding the envelope like a bird, with both hands, 
 
 ---
 
-# Day 28 — Notes: Allowed
+# Day 28 — Notes: The Phone Is for Bad News
 
-I've caught myself feeling guilty for being happy. The guilt says *how can you laugh.* I've decided it isn't betrayal. Joy is evidence there's something worth the fight. Yours might be the only light someone else gets today.
+Everyone in this country flinches when a phone buzzes. A woman I know sets her ringtone to a bird so it won't sound like what it is.
 
-Vira's phrase: take the sweet and swallow it whole.
+Write someone a letter this week, a real one, with paper. Give them something to open that doesn't flinch.
+
+*Dispatches from the Line is a work of fiction.*

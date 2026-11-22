@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 63 — Dispatch: Against Regulations
 
 "That," said Vira, afterwards, "was extremely against regulations."
@@ -26,8 +24,10 @@ I don't know what happened to him. I'm just saying he was meant to be in it.
 
 ---
 
-# Day 63 — Notes: Voices
+# Day 63 — Notes: The Ones We Can't Reach
 
-Never ask permission to start a song.
+For every family singing there's one that can't be reached. A voice goes off the net. A phone rings out. A town goes quiet.
 
-The man who signed off with the cough used to say "God keep you" instead of "over." Nobody on the net does that now. Vira does, sometimes, by accident.
+I'm not sure how to hold that. I think you hold it by singing anyway.
+
+*Dispatches from the Line is a work of fiction.*

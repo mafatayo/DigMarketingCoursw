@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 32 — Dispatch: The Workshop
 
 I should explain the corner.
@@ -40,8 +38,10 @@ Later I heard the small motor start up again behind the blanket, not the whine o
 
 ---
 
-# Day 32 — Notes: Parts
+# Day 32 — Notes: Wages
 
-Duct tape, gray, black, and a roll of pink from a donor. It holds just as well and cheers everyone up. Zip ties. Old phone batteries; don't ask. A good magnifier. A cup of tea kept at arm's length, never closer; he ruined a board that way.
+Each drone is someone's wages. A teacher in another country gave a month. A man who runs a bakery gave a week. A schoolchild gave a jar of coins, and the coins were counted out on a table in a hall.
 
-Parts from dead drones go back into live ones. Even a lost machine gives something back. I'd like it noted that this is the most humane sentence I've written in a month.
+When one is lost, we don't only lose a drone. We lose the afternoon of a stranger who cared. That's why Bohdan apologizes.
+
+*Dispatches from the Line is a work of fiction.*

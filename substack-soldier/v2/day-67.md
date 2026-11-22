@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 67 — Dispatch: Night Three
 
 At 2:40 a.m. on the third night of my leave the phone went off, and my body had forgotten nothing.
@@ -38,8 +36,10 @@ In the morning after the corridor I walked past her door and the light was on an
 
 ---
 
-# Day 67 — Notes: Things People Do
+# Day 67 — Notes: It Was Quiet
 
-Stand up on the tram. Say thank you, and I never know what to answer. Give me rolls. Look at me for slightly too long.
+When you ask a city how the night was, it says "quiet." It means: nothing landed near. It doesn't mean nothing happened.
 
-I've started saying "thank you for the roll."
+I'd like the word retired.
+
+*Dispatches from the Line is a work of fiction.*

@@ -1,5 +1,3 @@
-*A work of fiction inspired by the accounts of Ukrainian soldiers.*
-
 # Day 47 — Dispatch: A Good Day
 
 I'm going to describe a good day, because we need one on record, and because it's hard to do. Good days leave no marks.
@@ -26,8 +24,10 @@ When I put out the lamp that night I thought: *that was a very good day, and I s
 
 ---
 
-# Day 47 — Notes: Scale
+# Day 47 — Notes: A Good Day, Elsewhere
 
-A bad day: something hurts that can't be undone. An ordinary day: nothing goes wrong, nothing goes right. A good day: one warm meal, one kind word, one letter, one clear hour of sky. A great day: everyone laughs at the same time.
+Somewhere, tonight, a woman is cooking soup in a flat with the lights on, and her children are asleep. That's the good day, the one we're fighting for. Not mine. Hers.
 
-The best day I've had here is this one. Nothing happened.
+I'd like her never to know my name.
+
+*Dispatches from the Line is a work of fiction.*
