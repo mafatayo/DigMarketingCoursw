@@ -42,4 +42,3 @@ Worried about: getting used to it. Forgetting how quiet sounds. Being a stranger
 
 For the next thirty days: stay kind. Keep the book. Learn the whole of Motor's song. Eat, sleep when I can, write one honest letter.
 
-*(From here the dispatches come further apart. I've kept the count.)*
