@@ -1,5 +1,7 @@
 # Day 63 — Dispatch: Against Regulations
 
+**Bottom line:** Vira sang a carol on the open net, and one voice I knew was missing.
+
 "That," said Vira, afterwards, "was extremely against regulations."
 
 She said it with her hands still shaking, which is why I'm starting there. This was around one in the morning, the night of the holiday. The dishes were washed, the candle burned to a puddle, most of us half asleep, and she'd been sitting at the set with her headset on, keeping the net alive with quiet little clicks, when she did a thing nobody asked her to do. She turned up the volume on the open channel, keyed the mic, and said in a low voice, "All posts on the net. Magpie. If anyone's awake, I have something for you."
@@ -25,6 +27,8 @@ I don't know what happened to him. I'm just saying he was meant to be in it.
 ---
 
 # Day 63 — Notes: The Ones We Can't Reach
+
+**Bottom line:** For every family singing, there's one that can't be reached.
 
 For every family singing there's one that can't be reached. A voice goes off the net. A phone rings out. A town goes quiet.
 

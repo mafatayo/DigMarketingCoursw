@@ -1,5 +1,7 @@
 # Day 76 — Dispatch: What the Thaw Gives Back
 
+**Bottom line:** The thaw uncovers what winter hid; Zenko and I found a body at the edge of a field.
+
 The mud came back and it had brought friends.
 
 If the first mud was a lesson, this was a doctorate. The thaw loosened the world all at once. Frozen ruts turned to soup. Paths became canals. The trench floor, firm all winter, went to a thick brown porridge that took your boot and kept it. Yaroslav lost two in one morning and stood in the track on one leg like a statue of Defeat.
@@ -43,6 +45,8 @@ She'd gone very quiet. When I asked, she said that every spring she thinks of th
 ---
 
 # Day 76 — Notes: What the Thaw Gives Back
+
+**Bottom line:** People with notebooks walk the fields to give names back.
 
 Every spring there are people whose job is to walk the fields with notebooks. Volunteers, mostly. They find what the winter held and they try, one by one, to give it a name.
 

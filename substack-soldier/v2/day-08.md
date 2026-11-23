@@ -1,5 +1,7 @@
 # Day 8 — Dispatch: Mud
 
+**Bottom line:** A shell landed thirty meters away and Motor knocked me flat; nobody was hurt.
+
 Nobody warned me about the mud. They told me about the cold and the shooting and the fear, and not one person said, Danylo, you'll think about mud more than you think about your mother.
 
 It's orange-brown and it holds on. It took my boot on day four and wouldn't give it back, and I stood on one leg in a field while Bohdan hauled it out like a cork. Vira laughed so hard she had to sit down, in the mud, which she complained about for an hour. You learn a different walk. Short steps, weight low, never trust the front foot. Twenty-year-olds here walk like my grandfather on ice.
@@ -33,6 +35,8 @@ I couldn't hear in my left ear until the next morning. Zenko wore the glasses cr
 ---
 
 # Day 8 — Notes: A Field You Can't Plow
+
+**Bottom line:** A field you can't plow is a field the war has already won.
 
 The mud is on farmland. In the spring the farmers can't reach their own fields, some for the shells, some for what's in the ground. A field you can't plow is a field the war has already won, one crop at a time.
 

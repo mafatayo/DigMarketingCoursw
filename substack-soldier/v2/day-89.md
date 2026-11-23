@@ -1,5 +1,7 @@
 # Day 89 — Dispatch: The Questions
 
+**Bottom line:** Answers to your questions: you keep going by doing the next thing.
+
 I've been saving the questions, and tonight, with the lamp low and the stove ticking, I'll answer a few properly. Vira's reading them in her best radio voice. Halyna insists on tea first.
 
 **How do you keep going on the days you don't want to?**
@@ -35,6 +37,8 @@ Halyna has asked me to add one more. *Wash your hands.* She says she has receive
 ---
 
 # Day 89 — Notes: Two More
+
+**Bottom line:** I know they have mothers too, and I want a peace that lasts.
 
 *What would you say to the people who started this?* That I know you have a mother too.
 

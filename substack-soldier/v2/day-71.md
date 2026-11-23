@@ -1,5 +1,7 @@
 # Day 71 — Dispatch: The Line
 
+**Bottom line:** We argue about kettles and, sometimes, orders we think are wrong, and we still do the job.
+
 Not politics, I take it back. We argue about plenty, and almost none of it is the big stuff.
 
 This week: the kettle. Whether it should be filled to the line or to the brim. Halyna's a brim person. Vira's a line person. It's become a cold war fought with passive-aggressive adjustments to the water level. Motor, asked to arbitrate, said, "I fix engines, not marriages."
@@ -35,6 +37,8 @@ I've started keeping a tally of what we agree on. It's long. It includes: tea, d
 ---
 
 # Day 71 — Notes: What We Argue About
+
+**Bottom line:** Being allowed to question is the thing worth defending.
 
 We argue about what the army should do. It's not a failure of unity. It's a country with its eyes open, whose people have decided that fighting for something means being allowed to question it.
 

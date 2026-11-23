@@ -1,5 +1,7 @@
 # Day 62 — Dispatch: Seven Dishes
 
+**Bottom line:** We ate seven dishes with two empty chairs and drank to the plates.
+
 The debate about the potatoes ran four days.
 
 Twelve dishes is the tradition for the Holy Supper, and my grandmother would rise from the grave to see us attempt seven. Zenko said twelve was symbolic and could be met "with creative interpretation." Halyna said you can't interpret borshch. Vira said, then bring the borshch. The potatoes either counted as one dish or two, depending on whether you counted the garlic, and I'll admit that for forty minutes on the third evening I was the one arguing that garlic is a dish.
@@ -25,6 +27,8 @@ There were five mugs too many on the crate by the end, because everyone had take
 ---
 
 # Day 62 — Notes: Basements
+
+**Bottom line:** Christmas is eaten underground, by a candle meant to last.
 
 In some cities this year the Christmas supper is eaten underground. Twelve dishes on a crate. A child asks why the candle is so small, and the answer is "so it lasts."
 

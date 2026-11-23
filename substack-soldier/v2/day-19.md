@@ -1,5 +1,7 @@
 # Day 19 — Dispatch: Rotation
 
+**Bottom line:** A rumor of rotation raised our hopes, then died, because the units beside us had taken losses.
+
 It started, as it always does, with a man who knew a man.
 
 Bohdan heard it from a driver, who'd heard it from a cook, who'd heard it from "someone in the staff." Our section was to be rotated out in a week. Five days at a rear village. Beds. Showers. A roof that didn't drip into pots.
@@ -29,6 +31,8 @@ Rest, I decided, is whatever you can steal from the day.
 ---
 
 # Day 19 — Notes: No Rotation
+
+**Bottom line:** Mothers in basements have no rotation.
 
 A soldier can be rotated out. A mother in a basement can't. She has no shift change, no leave order, no truck at six a.m. She does her watch every night, with a child's head in her lap, and nobody writes her name on a list.
 

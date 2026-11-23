@@ -1,5 +1,7 @@
 # Day 27 — Dispatch: Mama
 
+**Bottom line:** My mother broke her hip running to a basement during an alert, and I couldn't go to her.
+
 The message came at four in the afternoon, which is a strange hour for bad news. I'd expected it at night. Instead it was a bright flat gray afternoon with Bohdan arguing about socks in the corner and the kettle just starting. My brother. Four words. *Call me. It's Mama.*
 
 I went up the steps with shaking hands. The signal's bad in the dugout, you have to stand by the post at the far end, one bar flickering. I dialed. It rang six times.
@@ -45,6 +47,8 @@ When I came down, the dugout went quiet the way it does. Nobody asked. Halyna lo
 ---
 
 # Day 27 — Notes: The Stairs
+
+**Bottom line:** The old people who fall on the stairs don't make the news.
 
 Statistics that don't make the news: how many old people break a hip running to a shelter. My mother's one. There's a ward in her hospital with eleven of them. They didn't die. They fell.
 

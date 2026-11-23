@@ -1,5 +1,7 @@
 # Day 78 — Dispatch: The Lieutenant
 
+**Bottom line:** Our young lieutenant was wounded, and Yaroslav tied the tourniquet under his orders.
+
 Maksym was hit on a Wednesday, and I'm going to tell it in the order I understood it, which wasn't the order it happened.
 
 I understood first that something was wrong with the quiet. It was a clear bright morning, the larks up, and then the larks stopped. All at once. In the way Zenko says birds do. We all looked up. I understood second that Halyna was already running.
@@ -39,6 +41,8 @@ Yaroslav washed his hands at the bucket for twenty minutes. I counted. Then Moto
 ---
 
 # Day 78 — Notes: What a Lieutenant Costs
+
+**Bottom line:** "Not life-threatening" isn't what the mother hears.
 
 A young man's arm. The use of it. Maksym will be fine, I'm told, in the way that people say it.
 

@@ -1,5 +1,7 @@
 # Day 31 — Dispatch: The Bird
 
+**Bottom line:** An enemy drone watched us for eleven minutes; an hour later one hit the next position.
+
 You hear it before you decide to.
 
 I was outside the dugout, mid-yawn, a mug in my hand, when the sound slid into the morning. High and thin, a mosquito in a dark bedroom, except the mosquito had a purpose. Everybody outside stopped. Nobody dove for cover. We just stopped, the way a room does when someone says your name.
@@ -37,6 +39,8 @@ Later Bohdan flew a patrol of his own. I stood behind him and watched the little
 ---
 
 # Day 31 — Notes: Not Looking for Us
+
+**Bottom line:** Not everything overhead is looking for soldiers.
 
 Some of the machines overhead aren't looking for soldiers at all. I can't say more than that. A bakery has a roof and so does a bus. They don't need to be what they were looking for.
 

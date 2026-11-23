@@ -1,5 +1,7 @@
 # Day 84 — Dispatch: The Tin
 
+**Bottom line:** We wrote letters to the children who'll live after this and sealed them in a tin.
+
 Zenko had an idea, and for once it wasn't about Plutarch.
 
 "We should write to the children," he said. "Not our own. The ones who'll come after. The ones who'll go to school in the buildings we've drawn on the wall."
@@ -51,6 +53,8 @@ We sealed the tin with a strip of pink duct tape. Zenko put it on the highest sh
 ---
 
 # Day 84 — Notes: For the Child Who Opens the Tin
+
+**Bottom line:** Tell the child it was a long time ago.
 
 If you're reading this in a classroom, in a country with no sirens, I hope someone told you it was a long time ago.
 

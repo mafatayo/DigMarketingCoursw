@@ -1,5 +1,7 @@
 # Day 25 — Dispatch: Three Strings
 
+**Bottom line:** A man with a three-string guitar made the dugout sing, and told me about the friend he lost.
+
 Somebody found a guitar in the ruins of a house. Three strings, a crack down the soundboard, a faded cartoon sun sticker on the back. They carried it in like a rescued puppy.
 
 Nobody could play. Bohdan tried a chord and produced a sound like a door falling downstairs. "It's a very sad guitar," said Vira. "It has a soul," said Zenko. "It has three strings." "A soul and three strings. Most of us have less."
@@ -27,6 +29,8 @@ That was all he said. I didn't ask what happened to the friend. You don't.
 ---
 
 # Day 25 — Notes: Under the Ground
+
+**Bottom line:** The concerts under the ground have never been canceled.
 
 In the metro stations, where people sleep, somebody always has a guitar. Somebody brings a violin. A woman in a long coat plays Chopin on a piano someone carried down in pieces.
 

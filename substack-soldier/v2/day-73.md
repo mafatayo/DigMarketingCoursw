@@ -1,5 +1,7 @@
 # Day 73 — Dispatch: A Pallet
 
+**Bottom line:** A foreign aid pallet brought warm kit and a kind note, but not enough of the one thing that matters most.
+
 A pallet arrived with a flag on the side that wasn't ours and the whole position gathered to look at it.
 
 A squared-off block of boxes wrapped in plastic, strapped down, stenciled in a language none of us could read, with a blue-and-yellow sticker slapped on one corner by someone's cheerful hand. The driver beside it, exhausted, filling in a form on a clipboard.
@@ -29,6 +31,8 @@ Then he lifted a woolen hat from the sack, turned it over in his big hands, and 
 ---
 
 # Day 73 — Notes: Pallets
+
+**Bottom line:** Aid matters, and it isn't enough.
 
 A stranger sent warm underwear. A parliament voted something. A truck turned up. Someone far away looked at a map and decided we were worth a pallet.
 

@@ -1,5 +1,7 @@
 # Day 52 — Dispatch: Press
 
+**Bottom line:** Journalists came, and I said Bohdan's name on camera.
+
 They came on Thursday, a man and a woman in clean vests that said PRESS, a camera as big as a small dog, and a young local driver who refused to leave the car.
 
 The commander had authorized it. We'd been told the day before with the weary politeness reserved for bad weather. "They'll want to see the dugout. Be natural."
@@ -31,6 +33,8 @@ But I'd said his name on camera, and I don't think I'd have said it otherwise. I
 ---
 
 # Day 52 — Notes: To the Journalists
+
+**Bottom line:** Ask the ordinary question, and spell the names right.
 
 Ask the ordinary question. What was the bread like? What did the child say? Where did the cat go? You'll get the whole war from the bread, I promise.
 

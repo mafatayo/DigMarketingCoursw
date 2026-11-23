@@ -1,5 +1,7 @@
 # Day 88 — Dispatch: To Someone Who's Never Been
 
+**Bottom line:** This is the closest I can come to telling you what it's like.
+
 You've asked me, in different ways, for three months, what it's really like. Here's my best attempt, with the understanding that it'll fail.
 
 Imagine the loudest day of your life, a day when something enormous happened. Now imagine it's over. And then imagine a hundred days of waiting for it to happen again. Most of it is that. A long wait, in the cold, with people you've come to love, doing small jobs.
@@ -31,6 +33,8 @@ That's the closest I can come. If you're someone who's never been, who watches f
 ---
 
 # Day 88 — Notes: Ask Us
+
+**Bottom line:** Ask what the children are eating.
 
 You ask what it's like. Try asking what the children are eating. Or what the old people do at night. Or what the baker does when the flour is late.
 

@@ -1,5 +1,7 @@
 # Day 24 — Dispatch: Forty-One Books
 
+**Bottom line:** A basement library keeps a gap on its shelf for the readers who don't return.
+
 There's a library in a basement in the village and it has forty-one books. I counted twice. It's an addiction.
 
 A retired schoolteacher called Mrs. Olena runs it. Tiny, sharp-eyed, silver hair pinned up in a style older than my mother. The basement of a cultural center, half collapsed above, stripped of furniture, is now her kingdom. Shelves made from planks and bricks. Two armchairs. A kettle. A heater when there's power. Over the door, a hand-lettered sign: SILENCE IS FOR THE LIBRARY. THE REST OF THE WORLD MAY SHOUT.
@@ -39,6 +41,8 @@ I promised her I'd try.
 ---
 
 # Day 24 — Notes: The Gap
+
+**Bottom line:** Every kitchen here has a gap like Mrs. Olena's shelf.
 
 Mrs. Olena keeps a gap on the poetry shelf for the ones who don't bring the books back. She's got four gaps now.
 

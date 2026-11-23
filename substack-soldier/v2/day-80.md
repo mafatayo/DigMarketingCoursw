@@ -1,5 +1,7 @@
 # Day 80 — Dispatch: Olha
 
+**Bottom line:** A psychologist told us our bodies learned a job, and Halyna finally talked.
+
 A psychologist visited, a gentle slightly rumpled woman called Olha, and I almost didn't go.
 
 The invitation was a notice on the wall: *Voluntary conversations with a specialist. Confidential. Tea provided.* The last word did it. I'm not proud. Yaroslav, Halyna and I trooped over one gray afternoon to a small borrowed room behind the command post, three people on plastic chairs with our hands between our knees like children outside a headmaster's door.
@@ -53,6 +55,8 @@ Motor, who'd been listening from the steps, grunted. "Next time I'll come."
 ---
 
 # Day 80 — Notes: A Place to Say It
+
+**Bottom line:** If you can, pay for an hour with a counselor.
 
 Olha says most of the people she sees aren't soldiers. They're mothers, teachers, bus drivers. The line queues up outside her room, and nobody asks for a medal; they ask for sleep.
 

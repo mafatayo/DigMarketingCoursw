@@ -1,5 +1,7 @@
 # Day 34 — Dispatch: Halyna's Hands
 
+**Bottom line:** Halyna taught us the tourniquet, and I realized she packs her bag like someone leaving on a trip she knows she'll take.
+
 Halyna's hands are the most important thing in the dugout and nobody ever says so.
 
 Square, strong, a little rough from washing. A nurse's hands, short nails, a faint pale mark on the left thumb where a scalpel once slipped. Always warm. She keeps them in her armpits when she's not using them, a habit from the ward, so they're not cold when they touch a patient. "It's courtesy," she says.
@@ -29,6 +31,8 @@ Later, going out, I saw her kneel by the door with her bag, checking it. The tou
 ---
 
 # Day 34 — Notes: Basement Ward
+
+**Bottom line:** The medical workers in the basements deserve sleep.
 
 The doctors worked a whole night in a ward with no windows and told me about it afterward in the same voice they'd use for a shopping list. A man with a hand. A child with a lung. A woman who kept apologizing for the blood.
 

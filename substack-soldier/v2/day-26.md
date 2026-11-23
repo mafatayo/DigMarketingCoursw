@@ -1,5 +1,7 @@
 # Day 26 — Dispatch: The Goal
 
+**Bottom line:** A fight over an old football goal gave us three hours of peacetime.
+
 The argument started at lunch and ended, I think, around midnight, and in between I learned that men who've been shot at together will fight to the death over a disallowed goal from years ago.
 
 It began innocently. Bohdan said something about the national team. Motor, who'd been eating, put down his spoon, which is how you know he's about to say something that matters.
@@ -45,6 +47,8 @@ I lay on the bunk later grinning at the ceiling, and thinking: that's the thing.
 ---
 
 # Day 26 — Notes: Watching the Match
+
+**Bottom line:** Even football is watched in shelters, out of stubbornness.
 
 There's a basement in a town on this line where forty people gather on match nights, around a phone propped on a stack of tires, to watch a game they've watched for thirty years. Whoever's on duty holds the aerial.
 

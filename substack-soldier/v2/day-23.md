@@ -1,5 +1,7 @@
 # Day 23 — Dispatch: The Generator
 
+**Bottom line:** Motor revived our dying generator, which runs the radio that keeps us alive.
+
 The generator died on Saturday night in the middle of Vira's favorite radio program, which she listens to on a tiny speaker with the volume at one. She made a noise I can only describe as a teakettle losing faith.
 
 It's ancient, Soviet, painted a green that's been peeling since before Bohdan was born. It runs the lamp, the radio charger, and the small heater that makes the dugout bearable. Without it, we sat in the dark and the cold with one candle.
@@ -41,6 +43,8 @@ I lay awake and listened to it run. Chug, chug, chug. A very small, very stubbor
 ---
 
 # Day 23 — Notes: Maternity
+
+**Bottom line:** Babies are being born in basements under generators.
 
 One of the maternity wards in a city I won't name has moved to its own basement. They run it off a generator, like ours. Babies are born under bare bulbs, with the midwives wearing helmets.
 

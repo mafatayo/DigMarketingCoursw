@@ -1,5 +1,7 @@
 # Day 59 — Dispatch: Dmytro
 
+**Bottom line:** I told Bohdan's best friend in a hospital that Bohdan is dead.
+
 I went to the hospital to tell Dmytro. The corridor comes first, because it's the one thing I'll never forget.
 
 Disinfectant, boiled cabbage, wet wool, and underneath it a faint sweetness I won't name. The smell of people being put back together. A long clean corridor painted a pale uncertain green, a row of plastic chairs against the wall, and at the end an old woman mopping the floor in long slow sweeps, like a priest.
@@ -47,6 +49,8 @@ I didn't know what to say.
 ---
 
 # Day 59 — Notes: The Ward
+
+**Bottom line:** In the ward, soldiers and civilians share a corridor.
 
 The ward has soldiers and civilians in the same corridor. A boy with a leg in a frame next to an old woman with a hip. A girl visiting her father. A man visiting his mother.
 

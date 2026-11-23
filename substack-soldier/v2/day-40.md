@@ -1,5 +1,7 @@
 # Day 40 — Dispatch: Magpie
 
+**Bottom line:** Vira holds the net together under heavy jamming and has not cried once.
+
 A man came through last week from a staff office, a clean pink well-fed sort of man in a very neat jacket. He walked in, looked round, and addressed Motor. "Sergeant, where's your radio operator?"
 
 "There," said Motor, pointing.
@@ -39,6 +41,8 @@ I notice something else, too. She's the only person in the dugout who hasn't cri
 ---
 
 # Day 40 — Notes: Magpie
+
+**Bottom line:** Women in this war do everything the men do, and the Sunday call as well.
 
 Vira has a sister in a city under the line. They talk every Sunday for four minutes, which is all the signal allows. Vira keeps a list of what she wants to say and crosses them off as she goes.
 

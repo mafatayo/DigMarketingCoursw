@@ -1,5 +1,7 @@
 # Day 43 — Dispatch: Currency
 
+**Bottom line:** Electricity became currency, and I spent my last charge hearing my wife's voice.
+
 After the blackout, electricity became money.
 
 Nobody wrote a rule. But in the days after, as power stayed thin, an informal economy grew up, rich and subtle and entirely unspoken, like trade routes of some ancient desert people.
@@ -39,6 +41,8 @@ We charged everything. Every phone, every radio. Zenko charged a tiny mp3 player
 ---
 
 # Day 43 — Notes: The Phone Is a Lifeline
+
+**Bottom line:** A power bank is a mother's call to her son.
 
 Everyone here has a power bank. It isn't for games. It's so that a mother in one city can hear the voice of a son in another at the end of the day.
 

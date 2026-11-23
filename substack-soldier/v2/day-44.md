@@ -1,5 +1,7 @@
 # Day 44 — Dispatch: Salt
 
+**Bottom line:** Exhaustion made me put salt in my tea; we're on double watch because the neighbors are under pressure.
+
 I put salt in my tea this morning and didn't notice until Vira stared.
 
 "What?"
@@ -31,6 +33,8 @@ I found out afterward that during those eleven hours the others had gone to the 
 ---
 
 # Day 44 — Notes: Nobody Slept
+
+**Bottom line:** The whole country is exhausted.
 
 The tiredness isn't only in uniform. Every shelter has its zombies, people in coats on benches who haven't slept more than three hours in a month and keep going to work.
 

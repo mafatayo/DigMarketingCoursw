@@ -1,5 +1,7 @@
 # Day 85 — Dispatch: The Night
 
+**Bottom line:** A massive attack hit the position, and Zenko was wounded carrying a boy to cover.
+
 I'm going to tell this in pieces, because that's how I have it.
 
 It started at nine in the evening with the larks silent. Vira said, at the radio, in her flat voice, "Everyone. Now." Then the ground began to move.
@@ -43,6 +45,8 @@ Halyna had him. She'd had him for ten seconds already. She was saying his name a
 ---
 
 # Day 85 — Notes: Shelter Count
+
+**Bottom line:** Civilians in the shelters were in that night too.
 
 In the cities that same night, in the cellars and the metro, there were people who listened to it and counted. Children asleep on coats. Old women with their hands over the ears of a dog. A man reading the same page of a book.
 

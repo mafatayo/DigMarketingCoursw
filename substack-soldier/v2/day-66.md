@@ -1,5 +1,7 @@
 # Day 66 — Dispatch: The Third Stair
 
+**Bottom line:** I got home; the third stair still creaks, and my daughter keeps a packed go-bag by the door.
+
 I'd rehearsed a dignified entrance on the train. Shoulders back, steady voice. Instead I climbed four flights with my bag banging my knees and stopped on the landing to catch my breath, and put my foot on the third step from the top, and it creaked.
 
 I've no idea why that was what did it. The creak, the cold painted rail, the smell of floor polish and someone's boiled cabbage, which I'd have said I hated. I stood in the stairwell and cried with one hand flat on the wall.
@@ -37,6 +39,8 @@ And the corridor. The mattress folded against the wall. A flashlight on a hook a
 ---
 
 # Day 66 — Notes: Go-Bags
+
+**Bottom line:** Children's go-bags exist; think about that.
 
 Children's go-bags. A little backpack by the door with a toy, a bottle of water, a card with their name and a phone number written in marker, in case.
 

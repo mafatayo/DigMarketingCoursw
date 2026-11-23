@@ -1,5 +1,7 @@
 # Day 54 — Dispatch: Taras Leaves
 
+**Bottom line:** Taras was transferred out, nobody says goodbye here, and I've started counting the people who are gone.
+
 Taras, the guitar man, is being transferred.
 
 He came to tell us at dusk, in his big coat, long hands in his pockets. His unit's being moved. A different sector, a different job. Orders came down that morning. He has until tomorrow.
@@ -45,6 +47,8 @@ I've kept a count since Bohdan. I mean of the people who aren't here. Pasha. Boh
 ---
 
 # Day 54 — Notes: Stations
+
+**Bottom line:** Nobody says goodbye on the platform.
 
 The railway stations are the saddest and the best places in the country. Women with suitcases, men with bags, a boy holding a toy. A kiss through a window. A hand against the glass.
 

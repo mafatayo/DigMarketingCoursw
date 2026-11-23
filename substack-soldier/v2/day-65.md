@@ -1,5 +1,7 @@
 # Day 65 — Dispatch: Seven Days
 
+**Bottom line:** I got seven days' leave and felt shame at being the one who goes.
+
 The officer who came in with the leave order brought snow on his cap and read from a sheet, and Zenko was in the middle of explaining the Treaty of Hadiach.
 
 "Corporal Lys. Seven days. Tomorrow, six a.m., from the junction. Truck, then a train."
@@ -37,6 +39,8 @@ The truck came round the bend with one headlight out.
 ---
 
 # Day 65 — Notes: What Leave Costs
+
+**Bottom line:** Leave costs the people who wait.
 
 Leave isn't only for the one who goes. It's a week of cooking, a week of tidying, a week of pretending you're not counting. And then a morning with a bag on the floor, and a child holding a rabbit.
 

@@ -1,5 +1,7 @@
 # Day 35 — Dispatch: Evacuation
 
+**Bottom line:** We evacuated a wounded man by night, and he died in the van while Halyna kept talking to him.
+
 I'll tell this one carefully, and leave out everything that could be used. What I can give you is how it felt.
 
 It was past midnight, cold enough that the metal stung, the sky thick with stars, the dugout dark except for one red lamp. I was half asleep when the radio clicked and Vira's whole body changed. She sat up like a pulled string. Her voice was low and calm. "Copy. Yes. How many? Understood. Ten minutes."
@@ -37,6 +39,8 @@ I never learned his name. I asked her, much later. She said she hadn't had time 
 ---
 
 # Day 35 — Notes: Volunteers Die Too
+
+**Bottom line:** Volunteers die too, and nobody keeps that list.
 
 The drivers aren't soldiers. They have no helmets worth the name. Some of them have died on those roads and nobody gave a speech.
 

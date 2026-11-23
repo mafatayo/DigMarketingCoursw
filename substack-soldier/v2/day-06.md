@@ -1,5 +1,7 @@
 # Day 6 — Dispatch: The Scarf
 
+**Bottom line:** Mail brought socks, a drawing, and news of a cracked window that my wife buried between the eggs and the tap.
+
 The boy who brought the mail was wearing the ugliest scarf I've ever seen, orange and brown, with a fringe, knitted by someone who clearly had strong views on color and none on length. It went round his neck about four times and he kept getting it caught in the truck door. I'm starting with the scarf because that's what I looked at for the first minute. I was trying not to look at the bag.
 
 Mail comes when a truck comes, and a truck comes when somebody decides the track is survivable, so the whole dugout lives in a low hum of maybe. This morning Vira stopped in the middle of a story about her cousin's wedding. Head tilted, like a dog. Then I heard it too, an engine grinding down the track with its lights off. Everyone pretended not to listen. Nobody pretended well.
@@ -23,6 +25,8 @@ I wore the socks to bed. They were far too hot. I wore them anyway.
 ---
 
 # Day 6 — Notes: Mail Is for What Can Wait
+
+**Bottom line:** In wartime letters, the hard news sits between the eggs and the weather.
 
 A nurse told me that families phone with the news that can't wait, and write with the rest. So when a letter comes in a hurry, with the handwriting slanted, it's worth reading the middle.
 

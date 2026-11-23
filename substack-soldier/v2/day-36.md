@@ -1,5 +1,7 @@
 # Day 36 — Dispatch: Smell
 
+**Bottom line:** Fear has a smell; Bohdan and I admitted it to each other, and I saw he's the one they'd go for.
+
 Nobody tells you fear has a smell, so let me correct the record.
 
 It's metallic. Sharp, a little sour, like a coin held under the tongue or the inside of a cold pipe. It comes off the body. I noticed it first in the van, on the night we carried him, and thought it was the stretcher. Then it was in the dugout the next morning, hanging in the air. Then I smelled it on my own sleeve and understood it was mine.
@@ -43,6 +45,8 @@ I lay there and didn't say any of it.
 ---
 
 # Day 36 — Notes: The Siren
+
+**Bottom line:** A child thinks the sirens are scared.
 
 A girl in a shelter asked me whether the sirens were angry. I said no. She asked whether they were sad. I said maybe. She nodded and said, "I think they're scared. That's why they're so loud."
 

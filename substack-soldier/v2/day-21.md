@@ -1,5 +1,7 @@
 # Day 21 — Dispatch: Pickles
 
+**Bottom line:** A stranger's pickles came with a prayer note, and the nearest town had been hit twice.
+
 A box came today addressed in blue ink, underlined twice: *Any Soldier, Please.* That was all. No name, no town. Vira opened it with the reverence she reserves for cargo that might explode or make her cry.
 
 On top, a folded note. Under it, wrapped in newspaper, four jars: cucumbers, tomatoes, beets, and a small one of plum jam with the lid sealed in wax.
@@ -27,6 +29,8 @@ I also left one jar unopened, on the shelf, next to Pasha's razor. Nobody asked 
 ---
 
 # Day 21 — Notes: What She Prayed
+
+**Bottom line:** She prays for the other side's mothers too.
 
 The woman who sent the pickles kneels at six every evening. I wrote to ask what she prays for. She wrote back, three lines. *For the boys. For the girls. For the people on the other side who have mothers too.*
 

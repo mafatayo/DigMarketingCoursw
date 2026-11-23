@@ -1,5 +1,7 @@
 # Day 9 — Dispatch: Four Bars
 
+**Bottom line:** Motor's four hummed bars are a song about a bus and his wife, and four is all he can afford.
+
 It took me nine days to ask what Motor hums.
 
 I'd been working on it in the background like a crossword. Four bars, always the same four, up, up, down, and then a long note that doesn't resolve. Bohdan guessed a pop song. Vira said funeral march. Zenko said possibly a Cossack lament, possibly nothing, which is his answer to most things.
@@ -29,6 +31,8 @@ When we got in, Bohdan asked what the song was. "A song about buses," said Motor
 ---
 
 # Day 9 — Notes: The Buses
+
+**Bottom line:** Motor's buses carried people out of the city, and none broke down.
 
 Before the war Motor's depot ran the city routes. In the first weeks it ran them out of the city, packed to the doors, no timetable. He doesn't say how many. He says only that the buses were never meant for that many and none of them broke down. "Not one," he says. He's prouder of that than of anything.
 

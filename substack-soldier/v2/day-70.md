@@ -1,5 +1,7 @@
 # Day 70 — Dispatch: Water
 
+**Bottom line:** We rarely argue politics; Yaroslav is angry at leaders who've never carried water.
+
 "I wonder," Yaroslav said, with one earbud out, "how many of them have ever carried water."
 
 Nobody answered. There was a clip playing on his phone, a man in a good suit making a promise, and the tiny tinny sound of it filled the dugout for a second until he turned it off. Motor's mustache twitched.
@@ -45,6 +47,8 @@ He laughed, thinly. "That's not Plutarch."
 ---
 
 # Day 70 — Notes: Accountability
+
+**Bottom line:** The country has the right to ask for honesty.
 
 The country has asked for a lot and has the right to ask for something back: honesty, competence, a hearing.
 

@@ -1,5 +1,7 @@
 # Day 90 — Dispatch: Four Bars
 
+**Bottom line:** On Day 90, Yaroslav shaves with Pasha's razor and Motor hums the whole song.
+
 It's early. The kettle's on. There's a thin silver light in the east and a lark has already begun, going up and up into a sky the color of the inside of a shell.
 
 I'm on the sandbags with the notebook on my knee. The Colonel's beside me, gray at the muzzle now, or maybe I'm only noticing. His head is on my boot. Behind me, through the open door, I can hear the dugout waking: Motor's cough, Vira muttering about the radio, a spoon on a mug. A lamp clicks on. Somebody laughs.
@@ -41,6 +43,8 @@ I just listen.
 ---
 
 # Day 90 — Notes: End It
+
+**Bottom line:** End it, so the baker can sleep.
 
 Here's my appeal, and it's only one sentence.
 

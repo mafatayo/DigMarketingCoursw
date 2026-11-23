@@ -1,5 +1,7 @@
 # Day 46 — Dispatch: The Bag
 
+**Bottom line:** Yaroslav lost his bag, we replaced it, and Motor walked back into the dark for his mother's letters.
+
 Yaroslav lost his bag.
 
 It happened dully, the way these things do. We were moving supplies between positions, a short muddy errand, and somewhere between the truck and the dugout his backpack slipped off the tailgate. By the time he noticed, a quarter of an hour later, the track behind us was empty. A long brown ribbon of ruts and nothing else.
@@ -41,6 +43,8 @@ Then he hummed his four bars until he fell asleep.
 ---
 
 # Day 46 — Notes: What You Take
+
+**Bottom line:** When people flee, they take the reading glasses.
 
 When families evacuate they have an hour. People take documents, medicine, the cat, a photograph. A woman told me she took her husband's reading glasses because she couldn't decide what else.
 

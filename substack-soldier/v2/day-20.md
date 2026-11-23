@@ -1,5 +1,7 @@
 # Day 20 — Dispatch: The Old Man
 
+**Bottom line:** An old man told us why he stayed in a half-empty village, and how many of his neighbors left.
+
 A few kilometers back, there's a village, and we got half a day to help.
 
 A single road, a church with a dented dome, a shop with its shutters half down. About a third of the houses had people in them. The rest had plywood windows, or none, and wild gardens. A dead gray sunflower leaned against one door like a man at a wall.
@@ -31,6 +33,8 @@ On the walk back none of us said much. Bohdan, ahead of me, was carrying a jar o
 ---
 
 # Day 20 — Notes: Eleven
+
+**Bottom line:** Eleven of twenty-six families remain, and someone should count them.
 
 There were twenty-six families on that road last spring. Eleven now. The old man says the number as flatly as a price.
 

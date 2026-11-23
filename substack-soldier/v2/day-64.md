@@ -1,5 +1,7 @@
 # Day 64 — Dispatch: Video
 
+**Bottom line:** A video call with my daughter was cut off by a siren, and the only word back was "Fine."
+
 "Lys. Phone. Post. Now," said Motor, which is how I knew the signal was good.
 
 I went up to the post in the snow in the hat Katya knitted and the enormous coat and held the phone at arm's length like a man about to take a very bad selfie. It rang twice. A flicker. And there was a ceiling, tilted, and a huge blurry eye, and Sonya's voice at about three times normal volume: "Papa! It's *Papa!*" The phone swung round the kitchen. I saw a cupboard, the cat, the taped window with the little sun drawn beside it, a pan.
@@ -27,6 +29,8 @@ At ten minutes there was a message. One word. *Fine.*
 ---
 
 # Day 64 — Notes: Mid-Call
+
+**Bottom line:** Every family here has had a call cut off by a siren.
 
 There isn't a family in this country that hasn't had a call cut in half by a siren. It's the shared experience. You say "I love you, I have to go," and you hang up, and then you wait.
 

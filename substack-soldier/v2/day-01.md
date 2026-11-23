@@ -1,5 +1,7 @@
 # Day 1 — Dispatch: Ten to Five
 
+**Bottom line:** The call came at 4:50 a.m., and I left for the front with half a cup of my wife's tea still on the kitchen table.
+
 The alert app goes off most nights, so when my phone started buzzing against the nightstand at ten to five I did what everyone in Kharkiv does. I lay still and counted the gap after the buzzing. Under forty seconds before the first thud and it's close, you grab the child and go to the corridor, two walls between you and the street. Over forty and you're being warned about somewhere else, and you're allowed to hate your phone and go back to sleep.
 
 I got to sixty. Nothing came. The buzzing didn't stop, though, and when I finally picked it up it wasn't the app. A number I didn't know. At that hour it's either very good or very bad, and I'd been waiting for it since the letter in the spring, so I'll say I wasn't surprised.
@@ -27,6 +29,8 @@ It was only at the second stop that I remembered the tea. I'd left about half of
 ---
 
 # Day 1 — Notes: The Corridor
+
+**Bottom line:** Thousands of children in this country have a favorite wall in a hallway; picture that when you read "the situation."
 
 Almost every flat in my city has a corridor with a mattress folded against the wall. Ask any child which wall is the good wall. The adults argue about it. The children know.
 

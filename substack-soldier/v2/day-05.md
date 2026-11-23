@@ -1,5 +1,7 @@
 # Day 5 — Dispatch: The Rules, As Recorded by Z.
 
+**Bottom line:** The section has unwritten rules, and the one nobody explains is that we never say the number of our dead.
+
 Zenko keeps a list. I found out because I caught him writing it, in pencil, in the back of his notebook, with the concentration he normally saves for the Treaty of Pereiaslav. He tried to cover it with his arm. Then he sighed and turned it round so I could read.
 
 *UNWRITTEN RULES (in order of discovery).*
@@ -41,6 +43,8 @@ There's a ninth rule I noticed myself, that isn't on the list. You can say Pasha
 ---
 
 # Day 5 — Notes: What the Children Call It
+
+**Bottom line:** Children here have their own words for what falls from the sky.
 
 In the shelters, I'm told, the children have their own words. A shell is "the big one." A drone is "the bee." The all-clear is "the song." They say them without fear, like words for weather.
 

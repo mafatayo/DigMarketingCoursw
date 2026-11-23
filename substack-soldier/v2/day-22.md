@@ -1,5 +1,7 @@
 # Day 22 — Dispatch: Tanks
 
+**Bottom line:** A nine-year-old drew tanks and knew far too much about them, so I drew him a fox.
+
 At the edge of the village there's a boy of about nine who sits on a wall every afternoon with a sketchbook and watches us pass.
 
 He doesn't wave. He's too cool for that. But he looks, with the full serious attention of a child who's decided something matters. Bohdan noticed him first. "He's drawing us," he whispered, as if we might scare him off.
@@ -63,6 +65,8 @@ I said I thought so. I'm trying to believe it.
 ---
 
 # Day 22 — Notes: Drawings
+
+**Bottom line:** Children draw tanks first, then houses, then a dog.
 
 A teacher in a refugee center told me that in the first week the children all drew tanks. In the second week, flags. In the third, houses, houses with two halves and a fence.
 

@@ -1,5 +1,7 @@
 # Day 50 — Dispatch: Fifty-Seven
 
+**Bottom line:** Vira read Bohdan's notebook aloud so the donors would hear every sorry, and then she cried.
+
 Vira found the green notebook. She didn't open it for two days. Then, on the third evening, with the lamp low and the dugout quiet, she took it from the shelf and sat down at the crate and said, to nobody, "Someone should read it."
 
 Nobody moved.
@@ -37,6 +39,8 @@ I went and sat with the Colonel in the corner, and he leaned into me, and I look
 ---
 
 # Day 50 — Notes: The Notebook
+
+**Bottom line:** Behind every lost machine is a boy.
 
 Fifty-six machines. I think about how a donor in a faraway country hears that number and feels sad about a drone, and I think: good. Feel sad about the drone. Then follow it back to the boy.
 

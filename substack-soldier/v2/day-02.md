@@ -1,5 +1,7 @@
 # Day 2 — Dispatch: Boots On
 
+**Bottom line:** My first night in the dugout taught me the only rule I needed: outgoing is ours, incoming is theirs, and don't listen too hard.
+
 "Boots on," said the sergeant. "Laces loose."
 
 That was the whole briefing. I'd had six weeks of training and an hour in a truck and a man I'd never met leading me the last stretch with a red light the size of a thumbnail, whispering "step here, no, *here*," and then I was at the bottom of some earth steps with a blanket hung over a door. He lifted the blanket and warmth and yellow light fell out. A lamp. A room. For about three seconds I was ridiculously happy.
@@ -35,6 +37,8 @@ There was a chip in the handle. I put my thumb in it.
 ---
 
 # Day 2 — Notes: Evacuated
+
+**Bottom line:** "Evacuated" is what we say before we're ready to say the other word.
 
 It's the word we use for the wounded, for the children, for whole villages, for the cat in the basket. "Evacuated" is what you say when you haven't decided yet whether to say the other word.
 

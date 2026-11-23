@@ -1,5 +1,7 @@
 # Day 82 — Dispatch: The Bridge
 
+**Bottom line:** Bohdan's bridge sketch is on our wall, and we agreed to build it after.
+
 I found the bridge in the green notebook.
 
 I wasn't looking for it. Vira had asked me to copy a list of numbers for the donors and I took the notebook down from the shelf for the first time since the evening she read it aloud. I turned past the columns, past the *Sorry*s, to the back cover. Inside it, in pencil, small and clean: a stone arch bridge. A graceful one, with a footpath on one side and a little lamp at each end. Under it, in student handwriting: *Village. Where the old one fell. After.* I sat with it.
@@ -31,6 +33,8 @@ I should say that none of us said who'd begun it. We left the bridge in the cent
 ---
 
 # Day 82 — Notes: Who Builds the Bridge
+
+**Bottom line:** Pay and name the people who build.
 
 Bohdan drew a bridge. I'd like it built. And I'd like the people who build it to be paid properly and to be thanked and to have their names on a stone beside it.
 

@@ -1,5 +1,7 @@
 # Day 83 — Dispatch: A Tuesday
 
+**Bottom line:** We each described our perfect Tuesday, and we left a chair for Bohdan.
+
 Tonight we did something we'd been avoiding. We described, in detail, our perfect ordinary day.
 
 It was Vira's idea. A damp quiet evening, the stove glowing, rain on the roof like a thousand small fingers. She was darning a sock by the lamp with her tongue between her teeth. "Let's do a game. Tell me a day. Not a great day. A Tuesday. The best, plainest Tuesday you can imagine, when it's over."
@@ -51,6 +53,8 @@ For a long time nobody wanted to be the first to speak.
 ---
 
 # Day 83 — Notes: Tuesdays
+
+**Bottom line:** Justice looks like a Tuesday.
 
 We all described the same day. A kitchen, a market, a bus stop, a garden. Nobody asked for a victory parade. Nobody said "justice."
 

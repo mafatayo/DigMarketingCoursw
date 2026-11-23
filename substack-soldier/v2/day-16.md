@@ -1,5 +1,7 @@
 # Day 16 — Dispatch: The Fox
 
+**Bottom line:** My callsign came from a nervous radio check that made the whole net laugh, before a very different message that night.
+
 I promised the story of my callsign and I'm a man of my word, even when I'd rather not be.
 
 It was my third day. Vira was teaching me the radio the way she teaches everyone, with the patience of someone defusing something. "Press, speak, release. Say who you are, say who you're calling. Short. Never say anything you wouldn't say in front of your mother."
@@ -37,6 +39,8 @@ I looked at Vira. She was sitting very still with her hand flat on the set.
 ---
 
 # Day 16 — Notes: The Net at Night
+
+**Bottom line:** The net carries mothers' questions, and Vira answers every one.
 
 The net carries more than us. Some nights a woman from a village calls the first number she can find to ask whether the position by the river is still there, because her son's in it, and she hasn't heard.
 

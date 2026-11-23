@@ -1,5 +1,7 @@
 # Day 3 — Dispatch: Soup
 
+**Bottom line:** There are six of us, none who'd have been picked for this, plus an empty bunk nobody talks about.
+
 I met them over a pot of soup, which turned out to be an argument, so that's how I'll do it.
 
 "There's too much salt," Halyna said, tasting it.
@@ -41,6 +43,8 @@ I never worked out whether he meant the section or something underneath it. Vira
 ---
 
 # Day 3 — Notes: Before
+
+**Bottom line:** Almost nobody in this war was meant to be a soldier.
 
 Every uniform in this war is a borrowed one. The nurse was on a ward in Lviv. The sergeant fixed buses. The boy was in third year at university. The soldier you imagine, the one who was always going to be a soldier, is rare here. We are mostly people waiting to go back to what we were.
 

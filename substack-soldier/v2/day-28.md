@@ -1,5 +1,7 @@
 # Day 28 — Dispatch: An Envelope
 
+**Bottom line:** Zenko's daughter is expecting; she wrote him a letter because the phone is for bad news now.
+
 The next day it was Zenko's turn, and I watched how a man receives good news after a month of none.
 
 He was at the table in his two scarves, small round glasses on his nose, a pencil behind his ear. The mail had come at noon. Vira handed him a thin gray envelope with a child's careful handwriting on it. He frowned at it and set it aside.
@@ -37,6 +39,8 @@ I looked at him then. He was holding the envelope like a bird, with both hands, 
 ---
 
 # Day 28 — Notes: The Phone Is for Bad News
+
+**Bottom line:** Phones mean bad news now; write a letter instead.
 
 Everyone in this country flinches when a phone buzzes. A woman I know sets her ringtone to a bird so it won't sound like what it is.
 

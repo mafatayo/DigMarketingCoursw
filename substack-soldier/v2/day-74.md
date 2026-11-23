@@ -1,5 +1,7 @@
 # Day 74 — Dispatch: Weather
 
+**Bottom line:** The world is tired of the headlines, and I'm angrier about that than I'd like to be.
+
 Zenko asked me something strange at dinner. "When did you last see a report that made you feel seen?"
 
 I thought about it. "I can't remember."
@@ -31,6 +33,8 @@ I said that last part more quietly than I meant, to the page, in the dark, and t
 ---
 
 # Day 74 — Notes: Don't Let Us Become Weather
+
+**Bottom line:** Don't let the people become weather.
 
 When the war becomes background, the people in it become background too. I understand why. Nobody can hold it all.
 

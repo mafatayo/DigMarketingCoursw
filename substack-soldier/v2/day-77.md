@@ -1,5 +1,7 @@
 # Day 77 — Dispatch: Larks
 
+**Bottom line:** Larks nested near the wire, and I found four eggs in an old helmet.
+
 I've been watching a pair of larks, and I'm in love with them.
 
 They arrived in the second week of the thaw, a small brown couple, unremarkable at a distance, and set up house in the tussocky grass just beyond the wire. Every morning at an hour I'd thought was mine alone the male rises straight up into the sky. A little column of song. He climbs and climbs, fluttering, pouring out a glittering unbroken stream of notes until he's a speck, until he's gone, and the music hangs there coming from nowhere.
@@ -25,6 +27,8 @@ I wanted to say something else here, about helmets, about whose it was. I don't 
 ---
 
 # Day 77 — Notes: The Fields With Signs
+
+**Bottom line:** There are fields with red signs, and a lark doesn't know.
 
 There are fields in this country with red signs at the edge. Don't walk here. Children learn to read them before they learn to read.
 

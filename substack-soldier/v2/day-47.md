@@ -1,5 +1,7 @@
 # Day 47 — Dispatch: A Good Day
 
+**Bottom line:** A plain good day, which I wrote down because I've learned what the next one can cost.
+
 I'm going to describe a good day, because we need one on record, and because it's hard to do. Good days leave no marks.
 
 It began with a thin clear sun through a hole in the cloud, lying along the frost like a blade. The cold was dry and bright. The Colonel stood on the sandbags and barked at nothing with great importance.
@@ -25,6 +27,8 @@ When I put out the lamp that night I thought: *that was a very good day, and I s
 ---
 
 # Day 47 — Notes: A Good Day, Elsewhere
+
+**Bottom line:** The good day we're fighting for belongs to someone else.
 
 Somewhere, tonight, a woman is cooking soup in a flat with the lights on, and her children are asleep. That's the good day, the one we're fighting for. Not mine. Hers.
 

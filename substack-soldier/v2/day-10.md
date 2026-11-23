@@ -1,5 +1,7 @@
 # Day 10 — Dispatch: A Quiet Day, Hour by Hour
 
+**Bottom line:** A quiet day is the hardest kind, because the mind gets loud, and a loose wire nearly broke me.
+
 **07:10.** Bohdan says "It's quiet today" at breakfast. The whole table stares at him. Vira throws a spoon. It misses, because she's a radio operator and not a pitcher, and clangs off the stove. Bohdan apologizes to the spoon.
 
 **08:30.** It is quiet, though. By the standard of the last ten days it's nearly silent. Wind, dripping, Motor's four bars drifting across the room. Halyna keeps glancing at the ceiling. Zenko reads the same page three times. When it's loud you're busy. You react, the body takes over. When it's quiet the mind has room and the mind is a much worse place to be.
@@ -35,6 +37,8 @@ I laugh. Out loud, alone, in a field. I laugh till my eyes water and then I sit 
 ---
 
 # Day 10 — Notes: Good Days
+
+**Bottom line:** An old woman counts the good days.
 
 An old woman I met keeps a calendar on her wall and puts a small cross on the days that were quiet. Not the bad days; the good ones. "I like to see how many," she said.
 

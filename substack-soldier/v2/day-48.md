@@ -1,5 +1,7 @@
 # Day 48 — Dispatch: Bohdan
 
+**Bottom line:** Bohdan was killed by an enemy drone, and I couldn't make myself walk the forty feet to him.
+
 I've written this three times and burned two of them in the stove. This is the one I can send.
 
 It was a little after ten in the morning. Gray, cold, ordinary. Bohdan had been up since six. He'd flown two short patrols and brought the machine in and was about to go out again. At ten he came up the steps with the drone under his arm like a small animal and stopped at the top, as he always did, to let his eyes adjust.
@@ -33,6 +35,8 @@ On the shelf the notebook with the green cover lay where he'd left it. Fifty-thr
 ---
 
 # Day 48 — Notes: Twenty-Three
+
+**Bottom line:** He was twenty-three; ask about his life, not his death.
 
 He was twenty-three. His birthday was a month ago. We made a cake out of biscuits.
 

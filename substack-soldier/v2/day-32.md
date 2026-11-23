@@ -1,5 +1,7 @@
 # Day 32 — Dispatch: The Workshop
 
+**Bottom line:** Bohdan's workshop keeps drones flying, and his notebook records fifty-three losses, each with a sorry.
+
 I should explain the corner.
 
 At the back of the dugout, behind a hanging blanket, there's a door laid across two crates, and on it lives Bohdan's workshop. A soldering iron with a burnt handle. A coil of thin wire. Tiny screwdrivers in a mug. Zip ties, tape in six colors, circuit boards with silver blobs of solder like tears. A magnifying glass on an old desk lamp. A jar of screws sorted by size, labeled in student handwriting: *M2, M2.5, "mystery."*
@@ -39,6 +41,8 @@ Later I heard the small motor start up again behind the blanket, not the whine o
 ---
 
 # Day 32 — Notes: Wages
+
+**Bottom line:** Each drone is a stranger's wages.
 
 Each drone is someone's wages. A teacher in another country gave a month. A man who runs a bakery gave a week. A schoolchild gave a jar of coins, and the coins were counted out on a table in a hall.
 

@@ -1,5 +1,7 @@
 # Day 57 — Dispatch: Boxes
 
+**Bottom line:** A donation truck brought the right batteries, and Yaroslav realized they were Bohdan's.
+
 A truck of donations arrived today and Motor opened it the way a man opens a letter from the tax office.
 
 "Check the labels. I want to know what every box is before we touch it."
@@ -39,6 +41,8 @@ We didn't, of course. But I wrote one note and taped it to the lid of the next b
 ---
 
 # Day 57 — Notes: What's in the Box
+
+**Bottom line:** Someone drew a sun on a crate; that is what the war can't touch.
 
 Someone drew a smiling sun on the lid of a crate. Someone packed a tangerine into each box. Somewhere in the world there's a table with eight people standing round it who've never met us.
 

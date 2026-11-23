@@ -1,5 +1,7 @@
 # Day 14 — Dispatch: Pasha
 
+**Bottom line:** Pasha, whose bunk I sleep above, died of wounds, and Motor decided his razor stays on the shelf.
+
 The call came for Halyna at four in the afternoon, in the middle of a mug of tea.
 
 She took it by the post where the signal is, and the rest of us tried to look occupied. I watched her through the door. She stood very straight, one hand over her free ear, saying "yes" and "I understand" and "when" in the same even voice. It took less than two minutes. When she hung up she kept standing there with the phone against her chest, looking at the field, for long enough that Motor put down the wrench he was holding and went up the steps without a word.
@@ -35,6 +37,8 @@ Motor hummed his four bars until about three, and then stopped, and I heard him 
 ---
 
 # Day 14 — Notes: His Sister
+
+**Bottom line:** When you deliver bad news, slow down and say the name first.
 
 Pasha had a sister. She's twenty-two. She was told on the phone, by a stranger, in about forty seconds.
 

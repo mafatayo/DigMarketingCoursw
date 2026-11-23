@@ -1,5 +1,7 @@
 # Day 51 — Dispatch: How Is It Really
 
+**Bottom line:** I lied to my wife about how it is, told her a smaller truth, and a siren cut us off.
+
 Katya asked me a direct question last night, and I lied.
 
 It was a good lie. Warm, practical, well constructed. I've been practicing for weeks. She said, over a poor line, with the crackle of distance in her voice, "Danylo, how is it really?"
@@ -41,6 +43,8 @@ I stood there a long while with the dead phone against my ear. Four hundred kilo
 ---
 
 # Day 51 — Notes: Four Hundred Kilometers
+
+**Bottom line:** Families here are split between a place and a phone.
 
 Almost every family here is split between a place and a phone. A father at the front. A mother in the city. A daughter in another country. A grandmother who refused to leave the village.
 

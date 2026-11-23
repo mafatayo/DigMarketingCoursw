@@ -1,5 +1,7 @@
 # Day 17 — Dispatch: Twenty-Three
 
+**Bottom line:** We made Bohdan a biscuit cake for his birthday, and I understood that he is the man most likely to be targeted.
+
 Bohdan turned twenty-three today and tried very hard to keep it secret, and failed, because Vira reads everybody's documents. She calls it administrative awareness. He calls it being stalked.
 
 Three days ago she announced over the stove, to the entire dugout: "Bohdan's birthday is Thursday. We're doing something."
@@ -37,6 +39,8 @@ I didn't say it. I ate the cake.
 ---
 
 # Day 17 — Notes: Candles
+
+**Bottom line:** Birthday cakes in every shelter are made from biscuits.
 
 A mother in a basement shelter made her daughter a birthday cake out of biscuits and condensed milk and put a candle on it, one of the emergency ones. Eleven children and four old people sang. The little girl blew it out and everyone laughed because the lights had just gone anyway.
 

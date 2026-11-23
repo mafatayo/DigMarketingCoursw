@@ -1,5 +1,7 @@
 # Day 68 — Dispatch: Promise
 
+**Bottom line:** My daughter asked me to promise I'd come back, and I couldn't; I returned to the front.
+
 "Promise," said my daughter, and I couldn't.
 
 She was standing in the hall in her pajamas with Marmalade under one arm, six years old and entirely serious. It was the seventh morning. I had a bag on my shoulder and my boots on, and Katya in the kitchen doorway holding a dish towel like something she'd forgotten how to put down.
@@ -35,6 +37,8 @@ I told him about the eggs.
 ---
 
 # Day 68 — Notes: Promises
+
+**Bottom line:** A child says "that isn't a promise," and she's right.
 
 A child asks you to promise. You say you'll try. She tells you it isn't a promise.
 

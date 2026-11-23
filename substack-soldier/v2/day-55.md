@@ -1,5 +1,7 @@
 # Day 55 — Dispatch: The List
 
+**Bottom line:** I'm keeping a ledger of names, and everyone has started adding theirs.
+
 I've been keeping a list.
 
 It started on Day 48, when the name was said at the table and I was ashamed to find I had no way to hold it. I'd told myself I'd remember. Memory's a leaky bucket and I've seen what it does to grief. It wears the edges off. I decided I wasn't going to let it.
@@ -27,6 +29,8 @@ It's arithmetic, not a wish. Everyone in this book was a person who thought they
 ---
 
 # Day 55 — Notes: The Names
+
+**Bottom line:** Say one civilian's name aloud.
 
 There's a list somewhere of the civilians who died. It's very long. I'm told it's incomplete, and I'm told that the names matter more than the numbers.
 

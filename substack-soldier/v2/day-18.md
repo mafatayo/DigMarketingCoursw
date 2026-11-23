@@ -1,5 +1,7 @@
 # Day 18 — Dispatch: Yaroslav
 
+**Bottom line:** A nineteen-year-old replacement arrived in the rain, and Motor gave him Pasha's bunk.
+
 It rained for three days, the thin gray kind that doesn't storm, that just continues, and by the second day we'd all stopped talking about it, the way you stop talking about a relative who's overstayed.
 
 The roof leaks into three pots. Plink, plink, plonk, three different notes. Bohdan says we could start a band. "The Wet Orchestra," said Zenko. "Opus one in a flat."
@@ -51,6 +53,8 @@ I lay there awake. People say a unit closes round a gap like water. But what I t
 ---
 
 # Day 18 — Notes: Who Has a Roof
+
+**Bottom line:** A roof is the first thing displaced families ask for.
 
 In the first week of the rain, I thought about the houses with no roof. There are thousands. Families sleeping under sheets of plastic nailed to rafters, with a pot where the ceiling was.
 

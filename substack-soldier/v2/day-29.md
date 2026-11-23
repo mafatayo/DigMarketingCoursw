@@ -1,5 +1,7 @@
 # Day 29 — Dispatch: A Blue Heart
 
+**Bottom line:** A letter from a child abroad made me lie kindly and say I was warm.
+
 I got a letter today that wasn't for me.
 
 It came in a bundle of cards from a school abroad, hundreds, children's, in many languages, glittering with glue. Vira sorted them on the table trying to share them evenly. Mine was a folded blue paper with a lopsided heart on the front.
@@ -23,6 +25,8 @@ Maria will never know. She'll go to school, forget, grow up, become a woman in a
 ---
 
 # Day 29 — Notes: Dear Children
+
+**Bottom line:** To children abroad: be kind to the child in your class who is from here.
 
 To the children who write to us from other countries: your teachers probably told you it's hard to understand a war. It is. Don't try to understand it. Try to be kind to the child in your class who is from here.
 

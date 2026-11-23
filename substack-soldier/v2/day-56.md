@@ -1,5 +1,7 @@
 # Day 56 — Dispatch: 5:40
 
+**Bottom line:** At 5:40 every morning I make the first tea; this morning I poured two mugs.
+
 The best hour of my day is 5:40 a.m., and I'll defend it.
 
 It's the gap, not the sleep, which I'm always short of. By 5:40 the night watch is ending, the day watch hasn't started, and a thin crack opens in the clock. Everyone's half awake. Nobody's had to be anything yet.
@@ -29,6 +31,8 @@ And he did, softly, the four bars drifting out across the frozen field. The sun 
 ---
 
 # Day 56 — Notes: Opening
+
+**Bottom line:** The bakery stays open.
 
 The bakery in the town opens at six. It opened the week the glass went, and the week after the shelling, and the week the flour was short. The woman who runs it says she can't stand to think of someone coming for bread and the door being locked.
 

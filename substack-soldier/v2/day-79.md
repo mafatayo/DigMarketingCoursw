@@ -1,5 +1,7 @@
 # Day 79 — Dispatch: Listening Under
 
+**Bottom line:** I taught Yaroslav to listen, he heard a threat first, and I'm afraid of what that costs him.
+
 Yaroslav asked me to teach him to listen.
 
 A Sunday evening, rainy, long gray light, the two of us on the steps with a bag of sunflower seeds. He'd been quiet all day. I'd learned to read it, the particular dip of the shoulders when he was working up to something. I waited, cracking seeds, spitting husks into the mud.
@@ -63,6 +65,8 @@ I looked at Motor. Motor looked at me. Neither of us said it. I'd made him bette
 ---
 
 # Day 79 — Notes: Teaching Children to Listen
+
+**Bottom line:** Mothers teach their children to tell a plane from a drone.
 
 Mothers here teach their children to hear the difference between a plane and a drone, between a bang and a thunderclap. It's a skill. It's the one thing I'd take back from the world if I could.
 

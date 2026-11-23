@@ -1,5 +1,7 @@
 # Day 39 — Dispatch: Zenko
 
+**Bottom line:** Zenko was pulled from his classroom, and he turns out to be good at calming the frightened.
+
 Zenko told me his story tonight, and I'll tell it back slowly, because he deserves it.
 
 He doesn't talk about himself. He'll talk about the Cossacks, the Treaty of Pereiaslav, the history of the potato (he has a lecture), but not himself. Tonight we were both on late watch on a pair of crates under a sky of stars, and the silence ran long, and he began.
@@ -37,6 +39,8 @@ We sat a while longer. Then he said, "Some of the ones I taught are out here. I 
 ---
 
 # Day 39 — Notes: Empty Classrooms
+
+**Bottom line:** Empty classrooms, with chairs still on the tables.
 
 Every school in the district has desks with nobody at them. Some have chairs set neatly on the tables the way they're left at the end of a day, and the day never ended.
 

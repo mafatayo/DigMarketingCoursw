@@ -1,5 +1,7 @@
 # Day 11 — Dispatch: Shower Day
 
+**Bottom line:** I got a hot shower, and I felt guilty about it after passing a destroyed school.
+
 Eleven days. I'd stopped noticing the smell around day six, which Halyna says is the dangerous stage.
 
 The word came at breakfast: a mobile shower, a truck with a tank and a boiler and a tarp, set up at a rear position. Ninety minutes, groups of three, somebody had to stay on the line. Motor read a list. Mine was the first group. I stood up so fast I hit my head on the beam.
@@ -25,6 +27,8 @@ When I came into the dugout Vira sniffed the air and said, "Lemon. Fine. Lys can
 ---
 
 # Day 11 — Notes: Water Upstairs
+
+**Bottom line:** Old people carry water up the stairs in bottles.
 
 In the towns the shower isn't hot either. In some buildings there's no water at all above the third floor, and the old people carry it up in plastic bottles, a flight at a time, resting on each landing.
 

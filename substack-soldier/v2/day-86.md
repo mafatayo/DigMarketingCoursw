@@ -1,5 +1,7 @@
 # Day 86 — Dispatch: The Count
 
+**Bottom line:** Zenko lived, five names went into the notebook, and his granddaughter was born the same week.
+
 Zenko is alive. I'm putting that first because for six hours I didn't know it.
 
 They took him out at four in the morning in the van, with Oksana driving, Halyna in the back with her hand on his chest. I stood in the doorway and watched the lights go. Then I did a thing I hadn't done in eighty-five days. I walked behind the sandbags and was sick.
@@ -33,6 +35,8 @@ It was the nearest thing to a laugh any of us had. We gave it a minute.
 ---
 
 # Day 86 — Notes: Two Lists
+
+**Bottom line:** The list of civilian dead isn't shorter.
 
 Halyna keeps one list of soldiers and one of civilians. I asked why. She said, "Because if I put them together someone will think the second one is shorter."
 

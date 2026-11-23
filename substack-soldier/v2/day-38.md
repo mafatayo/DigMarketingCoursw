@@ -1,5 +1,7 @@
 # Day 38 — Dispatch: The Lieutenant
 
+**Bottom line:** A very young lieutenant arrived, admitted he knew nothing, and learned to carry water the right way.
+
 We got a new lieutenant. He looks fifteen.
 
 Maksym is twenty-four, he assures us, with a boy's smooth face, big dark eyes, and a haircut so regulation it hurts. He arrived on a Tuesday with a spotless map case and a rucksack clearly packed by a mother, stood in the doorway, saluted, and said in a voice that cracked on the second word, "Sergeant. Lieutenant Maksym Koval. I'm... pleased to be here."
@@ -47,6 +49,8 @@ And the next morning he got orders, which he read with his face going carefully 
 ---
 
 # Day 38 — Notes: Nineteen
+
+**Bottom line:** The soldiers are getting younger.
 
 They're getting younger. I won't say that as a complaint, only a fact. Yaroslav is nineteen and arrived with boots too clean for the mud.
 

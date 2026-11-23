@@ -1,5 +1,7 @@
 # Day 49 — Dispatch: The Chaplain
 
+**Bottom line:** A chaplain came and we said Bohdan's name aloud; it gave the grief somewhere to go.
+
 He came the morning after, as if somebody had sent for him, though no one had.
 
 A small man, perhaps sixty, round gray beard, a heavy brown coat that had once been black. A cross at his neck on a thin cord, wrapped in a bit of cloth against the cold. He walked down the dugout steps carefully with one hand on the wall, paused at the bottom for his eyes to adjust, and said, "Peace to this house."
@@ -35,6 +37,8 @@ When he left he put a hand on each of our shoulders, one by one, and said someth
 ---
 
 # Day 49 — Notes: Burying Together
+
+**Bottom line:** Villages bury together, plank by plank.
 
 In a village near here, when someone dies, everyone brings a plank. That's how the coffin gets built. It's an old custom and it's the only thing that makes the numbers bearable: it isn't statistics, it's planks, and each one has a name written on the back.
 

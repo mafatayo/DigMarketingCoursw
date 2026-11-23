@@ -1,5 +1,7 @@
 # Day 67 — Dispatch: Night Three
 
+**Bottom line:** A siren at 2:40 a.m. sent us to the corridor, where my wife said my counting frightened her.
+
 At 2:40 a.m. on the third night of my leave the phone went off, and my body had forgotten nothing.
 
 I was out of the bed before the sirens started. That's the part I keep returning to. The app buzzed and I was already on my feet, one hand on the doorframe, counting, in a flat in a city I'd been living in for thirty years, with a soft mattress and hot water and a wife who'd gone from asleep to upright in the time it took me to stand. She had Sonya off the bed and into her arms. I'd been home three days and I'd already started to believe in the other story, the one where it doesn't happen to us. And my legs hadn't.
@@ -37,6 +39,8 @@ In the morning after the corridor I walked past her door and the light was on an
 ---
 
 # Day 67 — Notes: It Was Quiet
+
+**Bottom line:** "Quiet" doesn't mean nothing happened.
 
 When you ask a city how the night was, it says "quiet." It means: nothing landed near. It doesn't mean nothing happened.
 

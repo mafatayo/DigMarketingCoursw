@@ -1,5 +1,7 @@
 # Day 33 — Dispatch: Cold
 
+**Bottom line:** The first real cold arrived; Halyna counts our toes, and the rules are layers and dry feet.
+
 It arrived overnight and didn't ask.
 
 Yesterday was cool. Today I woke at four with my breath standing in front of my face and the blanket stiff along the edge where my exhale had frozen into little white feathers. The water in the bucket had a skin. The Colonel was curled in a tight ring on my chest, which I'd call affection if it wasn't also survival.
@@ -33,6 +35,8 @@ I thought, not for the first time, about the other side. About men in holes like
 ---
 
 # Day 33 — Notes: Cold as a Weapon
+
+**Bottom line:** Freezing a city is a decision.
 
 They hit the power stations in winter. That isn't a rumor in the dugout, it's arithmetic. Radiators go cold. Pipes burst. Old people wrap themselves in everything and sit in the kitchen with the oven door open, which is dangerous, and they do it anyway.
 

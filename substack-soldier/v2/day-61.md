@@ -1,5 +1,7 @@
 # Day 61 — Dispatch: Snow
 
+**Bottom line:** Snow came, there are fewer of us, and for one hour the field was a clean page.
+
 *From here on the dispatches come further apart. The nights are long, the signal's bad, and some weeks there's nothing I'm allowed to say. I've kept the count anyway.*
 
 Snow came in the night and took the sound out of the world. I woke at six thinking I'd lost my hearing. Lay there checking: stove, Motor's snore, the Colonel's thick breathing. All there, but wrapped in felt.
@@ -21,6 +23,8 @@ I put the mug on a sandbag. There was a little skin of ice on it by the time I c
 ---
 
 # Day 61 — Notes: Snow in the City
+
+**Bottom line:** Old people stay in bed in cold flats and say they're resting.
 
 In the city the snow is beautiful and it's a problem. The radiators don't work. The old people stay in bed and tell their grandchildren they're resting.
 

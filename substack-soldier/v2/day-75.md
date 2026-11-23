@@ -1,5 +1,7 @@
 # Day 75 — Dispatch: Thaw
 
+**Bottom line:** Spring smells like thaw, the other side is gathering, and we're sleeping in our boots.
+
 It begins with a smell.
 
 I was outside at dawn with the kettle and the air had changed. Softer, not warmer. There was something in it, a damp richness, like turned earth, like the first moment you open a door on a garden. I stood still with my face lifted until the kettle shrieked.
@@ -35,6 +37,8 @@ And I went.
 ---
 
 # Day 75 — Notes: Signs of Spring
+
+**Bottom line:** Someone planting is the answer to the war.
 
 Everyone here knows what spring means. It means fields, and it means what the winter was saving. In the markets they're selling seeds. People are buying them anyway.
 

@@ -1,5 +1,7 @@
 # Day 12 — Dispatch: Borshch
 
+**Bottom line:** A stranger drove six hours to bring us borshch, and wouldn't give her name.
+
 The borshch came in a tin the size of a bucket, strapped to the back seat of a hatchback driven by a woman who looked about sixty and who refused to give her name.
 
 Short, round, in a purple coat that did not belong anywhere near a front line, with a headscarf covered in roses. Her car was caked in mud to the windows and had a crack across the windshield you could've lost a coin in. She climbed out and started unloading like a woman arriving at a family picnic. Thermoses. Foil packets. Two loaves wrapped in a towel. A jar of something pickled. The tin.
@@ -33,6 +35,8 @@ He said it flat. Like a man reporting the weather. I've been thinking about it s
 ---
 
 # Day 12 — Notes: What She Said
+
+**Bottom line:** She said: "I don't want your thanks. I want it to stop."
 
 I asked the woman with the borshch why she drove so far. She didn't say it was for us. She said, "I don't want your thanks. I want it to stop."
 

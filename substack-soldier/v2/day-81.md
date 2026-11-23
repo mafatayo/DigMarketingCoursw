@@ -1,5 +1,7 @@
 # Day 81 — Dispatch: Monday
 
+**Bottom line:** A veteran asked what we'll do on the Monday after the war, and I wrote my first list.
+
 A man came to visit from the rear, a veteran of an earlier phase of all this, with a prosthetic leg and a stick, and he asked us the question none of us could answer.
 
 Ihor. About forty-five, broad, balding, with the quiet humorous bearing of someone who's made peace with a great deal. He'd come to talk to the new men, he said, "just to chat." We sat on crates in a circle and he told stories. Some funny. A few not. At one point he rapped his leg with his knuckle and it gave a hollow knock. "This one's called Boris. Boris and I have an understanding."
@@ -29,6 +31,8 @@ I wrote my own list, the first line trembling a little. *Sound. Quiet. A room th
 ---
 
 # Day 81 — Notes: Monday
+
+**Bottom line:** Write the plan for Monday now.
 
 When it's over there'll be a Monday. A city to rebuild, a half-generation of children who've learned to listen for planes. Veterans looking for work. Widows looking for answers.
 

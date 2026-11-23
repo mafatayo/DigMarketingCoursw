@@ -1,5 +1,7 @@
 # Day 45 — Dispatch: No Phones
 
+**Bottom line:** A three-day phone ban made us calmer, then Vira announced that the neighbors had been hit.
+
 We were ordered off our phones for three days, and I found out how much of my mind lived inside one.
 
 I won't give the reason because I only know part of it and the rest isn't mine to share. The order came down: no calls, no messages, no photos, no signal. Phones in a bag, the bag in a box, the box under a bunk. Motor collected them one by one with Halyna watching, and each man handed his over like a child surrendering a toy.
@@ -25,6 +27,8 @@ Behind me in the dugout I heard Vira say, to nobody, in a voice with nothing in 
 ---
 
 # Day 45 — Notes: Silence
+
+**Bottom line:** Silence from the front is a mother's worst hour.
 
 When we go quiet on the phones, someone's mother is looking at hers. She does it every ten minutes. She knows it's not a good sign and not a bad one, and she knows that knowing doesn't help.
 

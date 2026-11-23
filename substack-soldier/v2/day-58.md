@@ -1,5 +1,7 @@
 # Day 58 — Dispatch: Lidiya
 
+**Bottom line:** Lidiya, the borshch driver, learned Bohdan was gone and took off her headscarf.
+
 The woman in the little hatchback came back, the one with the borshch, and this time I got her name.
 
 Lidiya. Sixty-four. A retired seamstress. She turned up on a bright sharp Saturday in the same battered car with the cracked windshield, the same purple coat, a new thermos of something enormous and hot. I was ready this time. As she climbed out I stepped forward and said, "Madam, my section would like to know your name."
@@ -59,6 +61,8 @@ When she left she gave each of us a hard look and a hard pinch on the cheek, eve
 ---
 
 # Day 58 — Notes: The Other Army
+
+**Bottom line:** If this is won, the civilian army won it.
 
 Grandmothers, taxi drivers, bakers, students, seamstresses. They haven't been issued weapons. They've been issued a conscience, and they're using it better than most.
 

@@ -1,5 +1,7 @@
 # Day 72 — Dispatch: Receipts
 
+**Bottom line:** Some of us are furious about theft, and Halyna ran out of the bandages she needed.
+
 I've been too polite about this: some of us are very angry about the people who steal.
 
 It isn't constant. Most days it sits low like coals under ash. But now and then something blows on it. Last week it was a news story, a rumor probably, though not necessarily false, about equipment gone missing, contracts that didn't make sense, men in good coats getting rich while a boy in a hole can't find a spare battery. Motor said nothing. I watched his jaw.
@@ -31,6 +33,8 @@ On the night of the rumor, Vira said something that stuck. "I've decided to be i
 ---
 
 # Day 72 — Notes: Receipts, Again
+
+**Bottom line:** Ask where the money went; the dead deserve a receipt.
 
 Where did it go? That's the question every honest person asks. It isn't an insult. It's a basic respect for the people who gave.
 

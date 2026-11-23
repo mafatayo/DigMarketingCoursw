@@ -1,5 +1,7 @@
 # Day 60 — Dispatch: Pockets
 
+**Bottom line:** At sixty days I emptied my pockets, and I still wish I'd gone to Bohdan.
+
 Sixty days, and I had nothing to say about it, so I emptied my pockets onto the bunk instead. Halyna says it's a way to take stock when the head won't.
 
 Left breast pocket: a rabbit. No, not yet, that's later. Left breast pocket: Sonya's drawing of me with the enormous hands, folded in four, soft as cloth now. Katya's last letter, gone gray at the creases. A pencil stub. A photograph of the three of us on the sofa, curling.
@@ -33,6 +35,8 @@ I turned out the lamp. I could hear the ground, a long way off, doing whatever i
 ---
 
 # Day 60 — Notes: What I'd Ask
+
+**Bottom line:** Three requests: keep looking, ask the ordinary, and remember both sides have mothers.
 
 I'd ask three things.
 

@@ -1,5 +1,7 @@
 # Day 41 — Dispatch: Daniel
 
+**Bottom line:** A Canadian nurse brought bandages and learned the word for grandmother.
+
 The foreigner came with a delivery of medical supplies, and for ten minutes nobody could tell if he was a doctor, a journalist, or lost.
 
 Tall, thin, bearded, in a jacket several sizes too clean, with a backpack that looked bought the day before and a face of sincere wide-eyed cheerfulness. He spoke quick English and a very small amount of Ukrainian, learned from an app. "Hello," he said to Motor, with a deep bow. "I am happy to see you. I am a volunteer. I have... *bandages.*"
@@ -35,6 +37,8 @@ In the morning Daniel looked ten years older. He drank his tea with both hands. 
 ---
 
 # Day 41 — Notes: What the World Can Do
+
+**Bottom line:** Small help, repeated ten thousand times, is the right size.
 
 A man from Canada came with bandages and said it was a small thing. It isn't. It is exactly the size of what's needed, repeated ten thousand times by people who decided not to look away.
 

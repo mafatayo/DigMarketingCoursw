@@ -1,5 +1,7 @@
 # Day 13 — Dispatch: The Colonel
 
+**Bottom line:** A stray dog adopted us and warned us before a shelling, so we made him a colonel.
+
 He turned up on a Wednesday, which is how I know it was fate, because nothing good ever happens on a Wednesday.
 
 A scrawny rust-colored dog with one ear up and one ear down, sitting at the top of the dugout steps as if he'd been hired. No collar. A tail that wagged in short, careful sweeps, like he wasn't sure he'd earned the right. We looked at him and he looked at us and for a full minute nobody moved.
@@ -35,6 +37,8 @@ I'll try to deserve that.
 ---
 
 # Day 13 — Notes: Left Behind
+
+**Bottom line:** Pets wait at the gates for families who said "two days."
 
 When a family leaves in a hurry they tell the dog it's for two days. The dogs wait at the gates. We feed those. Nobody asks whose.
 

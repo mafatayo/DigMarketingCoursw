@@ -1,5 +1,7 @@
 # Day 15 — Dispatch: The Middle Watch
 
+**Bottom line:** On the middle watch I thought about my father, beehives, and what happens to a razor left on a shelf.
+
 Midnight to two is the worst slot. You're too awake to sleep and too tired to be good at anything. I got it tonight, the first watch since Pasha, and nobody said anything about that, but Motor gave me his own thermos.
 
 I went up with a blanket over my shoulders and the Colonel padding behind. A hard clean cold, the kind you can hear. More stars than I've seen since I was a boy, because nobody's turned on a light in this valley for months. Orion low in the south. The Plough tipped over like it had been dropped.
@@ -31,6 +33,8 @@ He took the blanket, which I hadn't offered, and I went down into the warm. The 
 ---
 
 # Day 15 — Notes: To the Man at the Screen
+
+**Bottom line:** To the man at the drone screen: look one second longer.
 
 You have a mother, too. I know you do. I don't forgive you, and I'm not asking to be forgiven. I'm asking you to look at the screen for one second longer than your orders say and see what is on it.
 

@@ -1,5 +1,7 @@
 # Day 7 — Dispatch: Sunday
 
+**Bottom line:** Sunday was quiet until four men carried a wounded man past me, the first I saw in six days.
+
 Zenko shaves on Sundays. It's the only reason I knew it was Sunday. With cold water and a square of mirror propped on a nail, and the rest of us watching as if it were theater.
 
 "A man should have one day a week when he looks like himself," he said, taking the blade down his cheek.
@@ -31,6 +33,8 @@ Three each. It wasn't a good breakfast; it was a breakfast. Vira, with her mouth
 ---
 
 # Day 7 — Notes: Basement Sunday
+
+**Bottom line:** Congregations here have learned to pray beneath the war.
 
 They hold services in the basement of a ruined church now. Forty people, a priest, a single candle, singing so quietly it's almost not singing. They've worked out how quiet is quiet enough.
 

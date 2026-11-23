@@ -1,5 +1,7 @@
 # Day 30 — Dispatch: One Month
 
+**Bottom line:** One month in, I'm frightened, clear-headed, and not the man who stood at that bus stop.
+
 Nobody made a fuss, which I appreciated. Motor didn't announce it. Vira didn't bake anything. But at breakfast Halyna added an extra spoon of sugar to my tea, slid it across the table without a word, and I understood the whole thing.
 
 I went up on the sandbags this morning with the notebook. The cold was clean and bright, every blade of grass wearing its own frost coat, the field dusted like salt. The sun came up pale yellow behind a line of bare trees. The Colonel stood next to me breathing steam.
@@ -40,6 +42,8 @@ I laughed, a real one, a big one. It rolled out across the frost. We went down f
 ---
 
 # Day 30 — Notes: What We Want
+
+**Bottom line:** We want attention, not pity.
 
 People ask what we want. Not pity. Pity expires in a week.
 

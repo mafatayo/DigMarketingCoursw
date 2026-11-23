@@ -1,5 +1,7 @@
 # Day 37 — Dispatch: Oleh and the Cabbage
 
+**Bottom line:** A supply driver explained that one loaf of bread takes seven people, and warned that ammunition is shrinking.
+
 A thing I wouldn't have believed on Day 1: one of the bravest people I know drives a truck full of cabbage.
 
 Oleh turned up this week, a stout ruddy man with a thick neck and a belly straining his jacket, who greeted me with a handshake that could have cracked a walnut. A supply driver. He brings us water, fuel, food, batteries, boots, medicine, mail, and six crates of canned peaches I suspect were stolen from a wedding.
@@ -35,6 +37,8 @@ Oleh left at dawn. I stood on the steps and watched his battered truck, loaded t
 ---
 
 # Day 37 — Notes: Bread
+
+**Bottom line:** A town can run out of flour in a week.
 
 A town of forty thousand can run out of flour in a week if the road closes. Nobody tells you. A queue forms, quiet, polite, because everyone knows each other.
 

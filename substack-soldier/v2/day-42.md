@@ -1,5 +1,7 @@
 # Day 42 — Dispatch: Dark
 
+**Bottom line:** The grid went dark, we told stories by candle, and for one minute I hated whoever ordered it.
+
 It happened at 6:14 p.m., I know because Vira was looking at the clock when the lamp went out.
 
 Not just ours. Everything. The generator coughed, shuddered, died, and from far beyond the walls came a long falling hum as the whole region exhaled and stopped. Then silence, and a darkness so total that for a moment I couldn't tell if my eyes were open.
@@ -31,6 +33,8 @@ Then I thought of the strikes, and who had ordered them, and what for, and that 
 ---
 
 # Day 42 — Notes: A Cold Night
+
+**Bottom line:** Old people lie in dark flats listening to a fridge that isn't running.
 
 When the grid fails, the hospitals switch to generators and the generators have fuel for as long as they have fuel. Everyone in the country knows the number of hours. People send each other the number.
 

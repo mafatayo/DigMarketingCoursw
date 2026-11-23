@@ -1,5 +1,7 @@
 # Day 69 — Dispatch: The Tray
 
+**Bottom line:** A dropped tray sent me under a café table in front of my oldest friend.
+
 The waitress dropped a tray and I was under the table before the glass hit the floor.
 
 I'd like that on record first, because it's the part Pavlo and I never talked about. The café was warm and yellow and full of spoons, we'd been there ten minutes, and somewhere behind me a tray of cups went down with a crash, and I was on my knees on the tiles with my arms over my head, and I heard a silence fall in the café around me. A long one. Then the waitress said, "Oh, God, I'm so sorry, are you all right?" and a boy at the next table laughed, uncertainly, and stopped.
@@ -59,6 +61,8 @@ He paid. He tipped too much, I noticed, and said nothing. At the door he hugged 
 ---
 
 # Day 69 — Notes: The Injury You Can't Bandage
+
+**Bottom line:** Be patient with the ones who flinch.
 
 Nobody in the café saw anything wrong with me. I was a man who'd dropped something.
 

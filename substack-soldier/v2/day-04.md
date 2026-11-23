@@ -1,5 +1,7 @@
 # Day 4 — Dispatch: 11:40
 
+**Bottom line:** One enemy drone stopped our tea for forty minutes, and the kettle rule is the only one everybody obeys.
+
 We missed the 11:40 tea.
 
 There's a schedule. Vira keeps it on a scrap of cardboard by the door, in pencil, rubbed out and rewritten every day. *Tea 6:10. Tea 11:40. Tea, if possible, 4.* There's a fourth column headed "if they're bored." The point is that you can't light the burner whenever you like. Smoke is a signal, a thin gray thread out of a hole in the ground, and the other side has things in the air that sit up there for hours looking for exactly that. So the stove is lit in the gaps between flights, and everyone knows the gaps by heart, the way people at home know their bus times.
@@ -19,6 +21,8 @@ What I haven't worked out is who the column "if they're bored" is for.
 ---
 
 # Day 4 — Notes: Smoke
+
+**Bottom line:** The war decides who gets to cook, even for grandmothers.
 
 A woman in the village told us she doesn't light her stove in the daytime now. Smoke can be seen. So her house is cold from morning till dusk and her grandchildren eat their porridge cold.
 

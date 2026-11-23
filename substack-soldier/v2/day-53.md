@@ -1,5 +1,7 @@
 # Day 53 — Dispatch: The Ceasefire
 
+**Bottom line:** A false ceasefire rumor made me want to believe it more than anyone, and the shelling got worse that night.
+
 The rumor came on a Tuesday, and by Wednesday it had legs, a beard, and a pension.
 
 It began as a whisper that the fighting in a far region had ended. By noon it was a ceasefire. By evening an agreement. By night someone in the next dugout swore he'd heard on the radio that we'd all be home by the weekend. A man in a neighboring position wept with joy. A second began to pack.
@@ -39,6 +41,8 @@ That night, though, the shelling was worse than it had been in a week. As if the
 ---
 
 # Day 53 — Notes: Ending It
+
+**Bottom line:** We want it to end so our children never have to fight it again.
 
 Everyone here wants it to stop. Nobody's allowed to say it first; it sounds like surrender. So we say it quietly, over tea.
 
