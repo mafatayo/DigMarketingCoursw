@@ -24,6 +24,10 @@ I went outside and played it nine times.
 
 Behind me in the dugout I heard Vira say, to nobody, in a voice with nothing in it, "They've hit the neighbors." I didn't turn round. The phone was still against my ear.
 
+**Tactical read.** Short communication blackouts accompany activity nearby. Discipline buys security at the cost of morale.
+
+**OPSEC.** Frequencies, call procedures and signal details are withheld.
+
 ---
 
 # Day 45 — Notes: Silence

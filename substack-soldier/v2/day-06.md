@@ -22,6 +22,10 @@ At the bottom, smaller: *I'm okay. Don't be a hero. Be home.*
 
 I wore the socks to bed. They were far too hot. I wore them anyway.
 
+**Tactical read.** Mail and phones are both a morale line and a vulnerability. Units limit when and where devices are used, and families learn what not to ask.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 6 — Notes: Mail Is for What Can Wait

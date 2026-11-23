@@ -52,6 +52,10 @@ Walking back we said nothing. At the dugout door Yaroslav stopped. "I thought it
 
 Motor, who'd been listening from the steps, grunted. "Next time I'll come."
 
+**Tactical read.** Combat stress care in the field preserves the force. Short, practical tools matter more than long theory.
+
+**OPSEC.** Medical details and casualty identities are limited to what a family would already know.
+
 ---
 
 # Day 80 — Notes: A Place to Say It

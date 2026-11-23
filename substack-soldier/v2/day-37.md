@@ -34,6 +34,10 @@ In the dugout afterward, nobody discussed it. But that night I saw Motor sitting
 
 Oleh left at dawn. I stood on the steps and watched his battered truck, loaded to the roof with other people's hope, rumble out of sight, a plume of dust hanging gold in the early light.
 
+**Tactical read.** Sustainment decides outcomes. When ammunition shipments shrink, commanders ration, prioritize and shift to defensive tasks.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 37 — Notes: Bread

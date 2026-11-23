@@ -30,6 +30,10 @@ I've thought about it since. We were witnessed. A small crew from another countr
 
 But I'd said his name on camera, and I don't think I'd have said it otherwise. I'd said it into something that would go somewhere. I stood a bit straighter for a day.
 
+**Tactical read.** Media visits create exposure: faces, vehicles and terrain can reveal location. Units limit what is filmed and when it is published.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 52 — Notes: To the Journalists

@@ -50,6 +50,10 @@ I heard a small surprised laugh in the dark, and then, after a long while, the b
 
 I lay there awake. People say a unit closes round a gap like water. But what I thought was: *someone made a phone call to send a nineteen-year-old to a hole in the ground, and this is what it looks like when it arrives.* It looks like a boy with a salute and a very clean pair of boots.
 
+**Tactical read.** Replacements arrive faster than training. New soldiers are paired with experienced ones, which costs the section effectiveness in the short term.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 18 — Notes: Who Has a Roof

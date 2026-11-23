@@ -30,6 +30,10 @@ At two, Bohdan came up, hair wild, rubbing his eyes. "Anything?"
 
 He took the blanket, which I hadn't offered, and I went down into the warm. The room smelled of tea and old smoke and the slow breath of sleeping men. I lay there with the whole sky still in my head.
 
+**Tactical read.** Night observation is slow and tiring, and fatigue degrades detection more than the lack of equipment does.
+
+**OPSEC.** Positions, orientation of the line and distances are altered.
+
 ---
 
 # Day 15 — Notes: To the Man at the Screen

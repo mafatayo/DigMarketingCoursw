@@ -44,6 +44,10 @@ What's hard is this: I'm four hundred kilometers from my mother's bed, in a hole
 
 When I came down, the dugout went quiet the way it does. Nobody asked. Halyna looked at my face and put a mug in my hands and sat down beside me, shoulder to shoulder, saying nothing. Motor, at the table, began humming his four bars, a bit louder than usual. Vira turned the radio down. Bohdan quietly moved his boots.
 
+**Tactical read.** Strikes on the home front hit soldier performance directly. Commanders manage that stress by granting calls, not by banning them.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 27 — Notes: The Stairs

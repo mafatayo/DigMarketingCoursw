@@ -40,6 +40,10 @@ The letters, though, weren't replaceable. Motor took a lantern and went back out
 
 Then he hummed his four bars until he fell asleep.
 
+**Tactical read.** Loss of personal kit is routine at section level, and replacement chains improvise because formal supply is slow.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 46 — Notes: What You Take

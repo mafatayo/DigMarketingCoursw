@@ -36,6 +36,10 @@ She stood, went to the stove, and, standing with her back to us, cried for the f
 
 I went and sat with the Colonel in the corner, and he leaned into me, and I looked at the shelf where the mug with the cartoon cat stood beside a razor and a candle stub and a small wooden swallow.
 
+**Tactical read.** Accountability for donated equipment underpins trust. Transparent loss records keep supply from drying up.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 50 — Notes: The Notebook

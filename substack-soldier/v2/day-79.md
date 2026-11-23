@@ -62,6 +62,10 @@ He nodded. He was shaking and his eyes were bright, and I knew with a cold dry c
 
 I looked at Motor. Motor looked at me. Neither of us said it. I'd made him better at being the one who sees first, and I knew exactly what that costs, because I'd watched what it cost Bohdan.
 
+**Tactical read.** Teaching soldiers to hear drones is cheap and effective, and it builds habits that outlast the war.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 79 — Notes: Teaching Children to Listen

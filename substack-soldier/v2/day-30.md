@@ -39,6 +39,10 @@ Zenko came up and stood beside me, wrapped in both scarves. "A month," he said.
 
 I laughed, a real one, a big one. It rolled out across the frost. We went down for tea.
 
+**Tactical read.** A month in, soldiers shift from adrenaline to endurance, and leaders watch for the slump that follows in weeks four to six.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 30 — Notes: What We Want

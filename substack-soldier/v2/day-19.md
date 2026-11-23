@@ -28,6 +28,10 @@ In the morning Motor handed out chores as usual. "Buckets. Boots. Firewood." Boh
 
 Rest, I decided, is whatever you can steal from the day.
 
+**Tactical read.** Relief cycles slip when adjacent units take losses. Commanders trade rest for line integrity, and morale pays for it.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 19 — Notes: No Rotation

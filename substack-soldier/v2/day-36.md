@@ -42,6 +42,10 @@ There was a thing I didn't say. I'd looked at him in the light of the lamp, the 
 
 I lay there and didn't say any of it.
 
+**Tactical read.** Fear management is a trainable skill. Units that talk about it in daylight perform better than units that suppress it.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 36 — Notes: The Siren

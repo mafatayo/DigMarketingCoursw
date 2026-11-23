@@ -38,6 +38,10 @@ On the shelf above the bench there's a notebook with a green cover. I saw it ope
 
 Later I heard the small motor start up again behind the blanket, not the whine of a flight, just a repaired thing spinning on a table, small and steady and alive.
 
+**Tactical read.** Small drones are consumables. Units repair and cannibalize airframes, and attrition is high against cheap loitering munitions.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 32 — Notes: Wages

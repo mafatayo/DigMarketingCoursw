@@ -36,6 +36,10 @@ At the handover the doors opened and other hands took him into a lit room, and s
 
 I never learned his name. I asked her, much later. She said she hadn't had time to ask, and that she'd hold it against herself until she died.
 
+**Tactical read.** Night evacuation under threat trades speed against signature. Vehicles run dark and fast, and crews accept risk that others avoid.
+
+**OPSEC.** Routes, vehicle types and handover points are withheld.
+
 ---
 
 # Day 35 — Notes: Volunteers Die Too

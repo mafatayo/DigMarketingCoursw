@@ -24,6 +24,10 @@ There was something I didn't tell her. I've listened to that net for two months 
 
 I don't know what happened to him. I'm just saying he was meant to be in it.
 
+**Tactical read.** Non-operational audio on a contested net breaks discipline. Commanders sometimes tolerate it once, because morale is also a combat variable.
+
+**OPSEC.** Frequencies, call procedures and signal details are withheld.
+
 ---
 
 # Day 63 — Notes: The Ones We Can't Reach

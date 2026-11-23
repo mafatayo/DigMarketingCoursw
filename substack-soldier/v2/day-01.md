@@ -26,6 +26,10 @@ The bus was late and then it was full. I stood. A woman with a very small dog in
 
 It was only at the second stop that I remembered the tea. I'd left about half of it in the cup on the kitchen table. Katya hates waste. She'd have drunk it cold, standing at the counter, and I thought about that for the rest of the ride, more than I thought about anything else.
 
+**Tactical read.** Mobilization turns civilians into soldiers in weeks, and the gap between summons and readiness is the army's most perishable asset.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 1 — Notes: The Corridor

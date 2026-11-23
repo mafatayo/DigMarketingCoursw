@@ -36,6 +36,10 @@ I couldn't answer. So I did what we do. I poured him tea from my thermos and put
 
 We sat a while longer. Then he said, "Some of the ones I taught are out here. I recognized a name on a list last month. A boy from the third row. I don't know where he is. I look at the lists." He took off his glasses and cleaned them. "I never know what I'm hoping to see. Isn't that strange?"
 
+**Tactical read.** Mobilized professionals bring teaching and communication skills that stabilize new troops, at a cost to the civilian systems they left.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 39 — Notes: Empty Classrooms

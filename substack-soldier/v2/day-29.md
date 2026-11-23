@@ -22,6 +22,10 @@ I thought about it for a while. There's a lie you tell your wife, to carry somet
 
 Maria will never know. She'll go to school, forget, grow up, become a woman in a city I'll never see, and somewhere in a pocket of a man in a hole, a blue heart will still be folded.
 
+**Tactical read.** Messages from abroad are a morale asset, and letters are screened for return addresses and metadata.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 29 — Notes: Dear Children

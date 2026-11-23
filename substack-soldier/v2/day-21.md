@@ -26,6 +26,10 @@ I wrote back. I don't have her address, only the town on the box. I put the lett
 
 I also left one jar unopened, on the shelf, next to Pasha's razor. Nobody asked me to. Nobody mentioned it.
 
+**Tactical read.** Support parcels sustain morale, and every return address and photograph is a possible leak.
+
+**OPSEC.** Place names, unit designations, dates and exact timings are withheld or altered.
+
 ---
 
 # Day 21 — Notes: What She Prayed

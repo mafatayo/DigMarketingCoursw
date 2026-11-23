@@ -46,6 +46,10 @@ I didn't know what to say.
 
 "It does," said Dmytro, and turned his face to the wall.
 
+**Tactical read.** Rehabilitation capacity limits how quickly the wounded return. The bottleneck is often beds and staff, not surgery.
+
+**OPSEC.** Medical details and casualty identities are limited to what a family would already know.
+
 ---
 
 # Day 59 — Notes: The Ward

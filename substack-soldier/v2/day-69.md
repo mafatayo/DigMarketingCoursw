@@ -58,6 +58,10 @@ He paid. He tipped too much, I noticed, and said nothing. At the door he hugged 
 
 "I'll *practice,*" he said.
 
+**Tactical read.** Hypervigilance and startle responses are normal combat adaptations, and they show up first in civilian spaces.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 69 — Notes: The Injury You Can't Bandage

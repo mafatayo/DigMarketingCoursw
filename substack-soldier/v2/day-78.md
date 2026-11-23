@@ -38,6 +38,10 @@ He'll live. I know that because we heard that evening. He'll lose some use of th
 
 Yaroslav washed his hands at the bucket for twenty minutes. I counted. Then Motor went and stood next to him, not speaking, and handed him the soap.
 
+**Tactical read.** Leader casualties are normal in forward positions. Deputy and NCO depth is what keeps a section running.
+
+**OPSEC.** Medical details and casualty identities are limited to what a family would already know.
+
 ---
 
 # Day 78 — Notes: What a Lieutenant Costs

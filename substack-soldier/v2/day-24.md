@@ -38,6 +38,10 @@ I borrowed the stories. She lent me a pencil too, so I could underline, a sin, s
 
 I promised her I'd try.
 
+**Tactical read.** Civilian basements and halls double as shelters. Damage to them degrades both civilian life and local military resilience.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 24 — Notes: The Gap

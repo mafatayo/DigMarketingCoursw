@@ -24,6 +24,10 @@ This morning one egg had hatched. A wet blind shivering scrap with a huge beak a
 
 I wanted to say something else here, about helmets, about whose it was. I don't know. Somebody's. It's the kind of thought that won't leave. But there's a bird in it now. That's what I decided. A thing that was somebody's is now somebody else's home, and I think that's the closest I'll ever come to understanding what this ground wants.
 
+**Tactical read.** Nature returns quickly to contested ground. Wildlife can reveal quiet, and sometimes danger.
+
+**OPSEC.** Positions, orientation of the line and distances are altered.
+
 ---
 
 # Day 77 — Notes: The Fields With Signs

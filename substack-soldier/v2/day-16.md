@@ -36,6 +36,10 @@ I looked at Vira. She was sitting very still with her hand flat on the set.
 
 "That's what it's for," she said. "The other thing's just so we can stand it."
 
+**Tactical read.** Radio nets are contested, brief and discipline-bound: short transmissions, callsigns only, no names. Humor exists on the net but is rationed.
+
+**OPSEC.** Frequencies, call procedures and signal details are withheld.
+
 ---
 
 # Day 16 — Notes: The Net at Night

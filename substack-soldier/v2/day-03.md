@@ -40,6 +40,10 @@ Zenko leaned across the crate and said, quietly, "They'll give you a name. Not t
 
 I never worked out whether he meant the section or something underneath it. Vira said the soup was getting cold and Halyna said it had been cold for ten minutes and the argument started up again from the beginning.
 
+**Tactical read.** Small units here are mixed-skill: a signaller, a medic, a drone pilot, a sergeant. Capability sits in a few individuals, so losing one degrades the whole section more than the headcount suggests.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 3 — Notes: Before

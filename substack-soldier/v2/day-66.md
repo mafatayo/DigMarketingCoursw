@@ -36,6 +36,10 @@ And the corridor. The mattress folded against the wall. A flashlight on a hook a
 
 "She keeps it ready," Katya said behind me. "It's a game. She says it's a go-bag. Like Papa's."
 
+**Tactical read.** Go-bags and corridor routines are home-front hardening, a social adaptation to sustained strikes.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 66 — Notes: Go-Bags

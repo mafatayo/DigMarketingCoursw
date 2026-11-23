@@ -18,6 +18,10 @@ The day before the séance I'd been outside digging six hours, in a wet cold tha
 
 What I haven't worked out is who the column "if they're bored" is for.
 
+**Tactical read.** Smoke and heat are signatures. Persistent aerial observation forces daily routine to be scheduled around gaps in coverage, so comfort carries a tactical cost.
+
+**OPSEC.** Place names, unit designations, dates and exact timings are withheld or altered.
+
 ---
 
 # Day 4 — Notes: Smoke

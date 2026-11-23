@@ -34,6 +34,10 @@ When he left he put a hand on each of our shoulders, one by one, and said someth
 
 "I will," said Mykhailo. "Mind the mule."
 
+**Tactical read.** Chaplains and counselors preserve the force. Units that process loss together return to function faster.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 49 — Notes: Burying Together

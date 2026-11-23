@@ -28,6 +28,10 @@ I've noticed since that he hums more when it's loud. A thud in the distance and 
 
 When we got in, Bohdan asked what the song was. "A song about buses," said Motor, and went back to his tiny engine parts.
 
+**Tactical read.** Section morale runs through a few people. A leader who rations his own emotion keeps the group functioning, and that is a combat resource.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 9 — Notes: The Buses

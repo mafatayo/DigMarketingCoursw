@@ -36,6 +36,10 @@ She sat me at the little table by the window and brought a roll, hot, split, but
 
 In the morning after the corridor I walked past her door and the light was on and the chalkboard said *Fresh. Probably.* In the same way, two doors down, someone had put plywood in a window.
 
+**Tactical read.** Soldiers on leave carry combat reflexes into civilian settings, and reintegration starts in the first week.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 67 — Notes: It Was Quiet

@@ -30,6 +30,10 @@ We pinned them up in a crooked gallery of the world that comes after. The Colone
 
 I should say that none of us said who'd begun it. We left the bridge in the center, at eye level, where you'd see it first. I noticed Vira reached up and straightened it, by a millimeter, before she went to bed.
 
+**Tactical read.** Reconstruction starts in the minds of the people who see the damage. Engineers and technicians in uniform are a rebuilding asset.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 82 — Notes: Who Builds the Bridge

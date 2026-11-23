@@ -30,6 +30,10 @@ I slept eleven hours. I woke with a mug of tea beside my pillow, sweet, hot, cor
 
 I found out afterward that during those eleven hours the others had gone to the line without me, and that Yaroslav had covered my watch. Nineteen. Not a word of it was mentioned.
 
+**Tactical read.** Sleep deprivation degrades judgment more than most equipment shortages. Fatigue errors cause losses that never appear in reports.
+
+**OPSEC.** Positions, orientation of the line and distances are altered.
+
 ---
 
 # Day 44 — Notes: Nobody Slept

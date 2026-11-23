@@ -42,6 +42,10 @@ He was in the passage, on his side, with his glasses off. He'd been carrying a b
 
 Halyna had him. She'd had him for ten seconds already. She was saying his name and she wasn't saying anything else, and I understood that she was working.
 
+**Tactical read.** Massed fires followed by assault is a recognizable pattern. Sections survive on depth, discipline and the quality of their communications under stress.
+
+**OPSEC.** Positions, orientation of the line and distances are altered.
+
 ---
 
 # Day 85 — Notes: Shelter Count

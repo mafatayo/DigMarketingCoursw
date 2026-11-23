@@ -28,6 +28,10 @@ Then he lifted a woolen hat from the sack, turned it over in his big hands, and 
 
 "Not a word," he said.
 
+**Tactical read.** Foreign aid arrives in mismatched forms. Its strategic effect depends on whether it includes enough of the scarce item, not on total tonnage.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 73 — Notes: Pallets

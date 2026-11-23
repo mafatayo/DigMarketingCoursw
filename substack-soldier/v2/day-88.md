@@ -30,6 +30,10 @@ Imagine being good at something you never expected to be good at, and wishing wi
 
 That's the closest I can come. If you're someone who's never been, who watches from a distance: it isn't a failure of yours. Don't feel guilty. Don't feel you owe a performance of suffering. Stay human. Stay curious. Stay kind. Be a person who, if it ever came to it, would carry the water.
 
+**Tactical read.** Civilian understanding of combat is limited by security rules, and that gap is partly deliberate.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 88 — Notes: Ask Us

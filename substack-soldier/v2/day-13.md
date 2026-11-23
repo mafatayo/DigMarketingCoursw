@@ -34,6 +34,10 @@ Everyone else here came because of a summons or a law or a duty. He came because
 
 I'll try to deserve that.
 
+**Tactical read.** Animals and locals often notice incoming fire sooner than people do. Any early-warning source helps in a noisy environment, though none is reliable.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 13 — Notes: Left Behind

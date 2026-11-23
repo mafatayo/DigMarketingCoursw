@@ -30,6 +30,10 @@ So I've made a rule. I won't be angry at the tired. I'll tell the small true thi
 
 I said that last part more quietly than I meant, to the page, in the dark, and the Colonel opened one eye.
 
+**Tactical read.** Attention fatigue in donor countries has measurable effects on supply, so people who tell this story keep telling it.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 74 — Notes: Don't Let Us Become Weather

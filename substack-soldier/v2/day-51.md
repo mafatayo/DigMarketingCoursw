@@ -40,6 +40,10 @@ And the line cut.
 
 I stood there a long while with the dead phone against my ear. Four hundred kilometers away my wife was picking up our child and walking to a corridor, and I was holding a piece of plastic, and I couldn't even stand up straight.
 
+**Tactical read.** Information discipline on family calls matters as much as radio discipline.
+
+**OPSEC.** Frequencies, call procedures and signal details are withheld.
+
 ---
 
 # Day 51 — Notes: Four Hundred Kilometers

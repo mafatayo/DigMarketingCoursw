@@ -28,6 +28,10 @@ I laughed, and then didn't.
 
 Later, going out, I saw her kneel by the door with her bag, checking it. The tourniquets, the bandages, the foil sheets. She counted them under her breath. She'd counted them three times that day. Every night, before she sleeps, she packs the bag as if for a trip she knows she's taking.
 
+**Tactical read.** Buddy-aid training is the single largest lever on survivability in the first ten minutes.
+
+**OPSEC.** Medical details and casualty identities are limited to what a family would already know.
+
 ---
 
 # Day 34 — Notes: Basement Ward

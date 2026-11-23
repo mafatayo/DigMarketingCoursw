@@ -44,6 +44,10 @@ Back in the dugout, someone had put the guitar on his chair. Nobody touched it. 
 
 I've kept a count since Bohdan. I mean of the people who aren't here. Pasha. Bohdan. Taras, who is, in the proper sense, still alive. I notice that I count him anyway. It's a habit I've picked up and I don't like it.
 
+**Tactical read.** Personnel turbulence from transfers erodes cohesion, and units cope with rituals and records.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 54 — Notes: Stations

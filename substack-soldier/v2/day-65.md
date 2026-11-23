@@ -36,6 +36,10 @@ At the junction the truck was late. A handful of us stood in the snow with our b
 
 The truck came round the bend with one headlight out.
 
+**Tactical read.** Leave rotation is a manpower trade-off: units cannot function without it and cannot afford it.
+
+**OPSEC.** Routes, vehicle types and handover points are withheld.
+
 ---
 
 # Day 65 — Notes: What Leave Costs

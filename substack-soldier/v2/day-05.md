@@ -40,6 +40,10 @@ I read it again. Underneath, in smaller letters, he'd written: *(Nine.)* And the
 
 There's a ninth rule I noticed myself, that isn't on the list. You can say Pasha's name at tea, but not at supper. Nobody told me. I just saw that it's how it goes.
 
+**Tactical read.** Phone and photo discipline is the cheapest security measure there is. At section level, most compromises come from habit, not capture.
+
+**OPSEC.** Frequencies, call procedures and signal details are withheld.
+
 ---
 
 # Day 5 — Notes: What the Children Call It

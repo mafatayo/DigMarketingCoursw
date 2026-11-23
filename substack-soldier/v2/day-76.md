@@ -42,6 +42,10 @@ She'd gone very quiet. When I asked, she said that every spring she thinks of th
 
 "Yes," she said, finally. "Tea."
 
+**Tactical read.** The thaw exposes remains and unexploded ordnance. Recovery and clearance are slow and will outlast the fighting.
+
+**OPSEC.** Positions, orientation of the line and distances are altered.
+
 ---
 
 # Day 76 — Notes: What the Thaw Gives Back

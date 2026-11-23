@@ -32,6 +32,10 @@ That evening I read the note to the section, in full, out loud. A girl. Three ki
 
 It was the nearest thing to a laugh any of us had. We gave it a minute.
 
+**Tactical read.** After-action accounting of names, numbers and supplies is both a duty and a form of grief. Units keep it even when headquarters does not.
+
+**OPSEC.** Medical details and casualty identities are limited to what a family would already know.
+
 ---
 
 # Day 86 — Notes: Two Lists

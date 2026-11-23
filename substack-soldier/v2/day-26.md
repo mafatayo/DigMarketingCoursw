@@ -44,6 +44,10 @@ A gasp. "You're conceding?"
 
 I lay on the bunk later grinning at the ceiling, and thinking: that's the thing. That's all of it. The right to argue about a football match at midnight in your own kitchen. And I also thought, because I couldn't help it, about how many kitchens in this country have a chair nobody argues from anymore.
 
+**Tactical read.** Cohesion is built in ordinary arguments. Sections with trivial banter tend to handle serious stress better.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 26 — Notes: Watching the Match

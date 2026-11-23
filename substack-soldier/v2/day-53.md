@@ -38,6 +38,10 @@ Nobody was angry. Yaroslav said, "It was nice for a day, though," and Vira said,
 
 That night, though, the shelling was worse than it had been in a week. As if the other side had decided to correct a misunderstanding.
 
+**Tactical read.** Rumor is an information weapon. Units counter it by demanding sources and waiting for official confirmation.
+
+**OPSEC.** Frequencies, call procedures and signal details are withheld.
+
 ---
 
 # Day 53 — Notes: Ending It

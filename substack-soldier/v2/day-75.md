@@ -34,6 +34,10 @@ Then Motor from the steps: "Lys. Water."
 
 And I went.
 
+**Tactical read.** Spring thaw changes terrain and brings preparation by both sides. Intelligence and rumor both rise.
+
+**OPSEC.** Place names, unit designations, dates and exact timings are withheld or altered.
+
 ---
 
 # Day 75 — Notes: Signs of Spring

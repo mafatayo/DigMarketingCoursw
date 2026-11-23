@@ -34,6 +34,10 @@ I believe he does. I believe he knows exactly what's going on and has decided to
 
 Halyna has asked me to add one more. *Wash your hands.* She says she has received no questions on the subject and is concerned.
 
+**Tactical read.** Public questions are a good proxy for what the public misunderstands. Answering them within OPSEC limits is part of the job.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 89 — Notes: Two More

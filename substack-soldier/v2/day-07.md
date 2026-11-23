@@ -30,6 +30,10 @@ They were back in half an hour, with no blanket. Halyna washed her hands at the 
 
 Three each. It wasn't a good breakfast; it was a breakfast. Vira, with her mouth full, asked whether anyone had thought about lunch and Bohdan said it was too early to think about lunch and she said that was exactly when you thought about it.
 
+**Tactical read.** Casualties arriving from a neighboring position show how thinly the line is held and how mutually dependent positions are. A section learns about its neighbors by what passes its door.
+
+**OPSEC.** Medical details and casualty identities are limited to what a family would already know.
+
 ---
 
 # Day 7 — Notes: Basement Sunday

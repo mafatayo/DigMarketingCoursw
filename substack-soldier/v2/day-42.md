@@ -30,6 +30,10 @@ This is what the world looked like for most of history, I thought. Dark, cold, p
 
 Then I thought of the strikes, and who had ordered them, and what for, and that someone, tonight, was sitting in a room with a light on and a plan, and had decided that this was how you win. I stood there with my head back and I hated them, very cleanly, for about a minute. It didn't last. It never does. But I wanted it written down.
 
+**Tactical read.** Strikes on the power grid degrade civilian life and also reduce military communications and charging capacity. Units pre-stage batteries and generators.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 42 — Notes: A Cold Night

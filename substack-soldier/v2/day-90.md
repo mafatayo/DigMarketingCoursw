@@ -40,6 +40,10 @@ And then, to my astonishment, he doesn't stop. A fifth. A sixth. The whole tune,
 
 I just listen.
 
+**Tactical read.** At ninety days the section is not the unit that started. The most important asset on this front is institutional memory, held in people like Motor.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 90 — Notes: End It

@@ -34,6 +34,10 @@ I laugh. Out loud, alone, in a field. I laugh till my eyes water and then I sit 
 
 **22:10.** He stands there with me anyway, listening. Then he says it's too cold for this and I should come in, and there's tea in the morning at 6:10.
 
+**Tactical read.** Lulls are not necessarily calm. Quiet often means observation or repositioning, so alertness cannot drop when fire does.
+
+**OPSEC.** Positions, orientation of the line and distances are altered.
+
 ---
 
 # Day 10 — Notes: Good Days

@@ -12,7 +12,7 @@ He went the color of a beet. "Please don't."
 
 You can't order a cake here. You can't order a pizza. What you can do is conspire, and this group conspires beautifully. For three days there were whispers over the tea. Zenko was writing a speech. Halyna was in charge of "the cake situation." Motor was seen pretending not to be involved while sanding a small piece of wood for reasons nobody mentioned.
 
-This morning Bohdan went out early to fly a short check, nervous as always, apologizing to the machine. He's out there maybe twenty minutes at a time. That's the rule: twenty minutes, then down, because the longer it's up, the more likely somebody on the other side finds the signal and finds him. He doesn't talk about it. I've noticed that after every flight he sits very still for a minute before he comes in.
+This morning Bohdan went out early to fly a short check, nervous as always, apologizing to the machine. He's never out there long. That's the rule: keep it short, because the longer it's up, the more likely somebody on the other side finds him. He doesn't talk about it. I've noticed that after every flight he sits very still for a minute before he comes in.
 
 When he came down the steps, the lamp was lit, the crate had a cloth on it, a real cloth, embroidered, somebody's grandmother's, and in the middle there was a cake. Crushed biscuits, condensed milk, cocoa, pressed into a mess tin and chilled outside in the cold. One stubby white candle, the kind you keep for power cuts. Vira had cut little paper flags from the back of a ration box.
 
@@ -35,6 +35,10 @@ The cake was gone in about four minutes. The Colonel got a corner. Bohdan kept t
 I should say what I was thinking, because it wasn't about cake. I was thinking about the sheer number of days a person has to get through to reach twenty-three, and how many of those he'd spent in a room with a screen, being quiet, and how he was now the most targeted man in the dugout, whatever the rank says. I was thinking: *keep your head down, kid.*
 
 I didn't say it. I ate the cake.
+
+**Tactical read.** Drone operators generate observation, which makes them priority targets for the other side. That raises their risk well above that of the rest of the section.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
 
 ---
 

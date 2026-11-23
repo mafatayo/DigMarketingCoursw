@@ -32,6 +32,10 @@ If I'd had to write an honest summary it would say that I'm thinner and grayer a
 
 I turned out the lamp. I could hear the ground, a long way off, doing whatever it does. The dugout sounded like a house.
 
+**Tactical read.** Sustained operations produce cumulative attrition in judgment and morale, and commanders track both alongside ammunition.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 60 — Notes: What I'd Ask

@@ -58,6 +58,10 @@ When she left she gave each of us a hard look and a hard pinch on the cheek, eve
 
 "Yes, ma'am," said six tired people.
 
+**Tactical read.** Volunteer logistics is part of the system now. Their risk is real and does not appear in military statistics.
+
+**OPSEC.** Routes, vehicle types and handover points are withheld.
+
 ---
 
 # Day 58 — Notes: The Other Army

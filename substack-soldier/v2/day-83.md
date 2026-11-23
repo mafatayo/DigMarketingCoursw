@@ -50,6 +50,10 @@ Then Vira said, in a voice I'd never heard her use, "He'd fix something. A radio
 
 For a long time nobody wanted to be the first to speak.
 
+**Tactical read.** Talk of future life is a coping tool and a retention tool.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 83 — Notes: Tuesdays

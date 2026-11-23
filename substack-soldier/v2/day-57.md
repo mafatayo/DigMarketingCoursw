@@ -38,6 +38,10 @@ You can't see the whole chain. You see the boxes and the dust on them and the wr
 
 We didn't, of course. But I wrote one note and taped it to the lid of the next box going back down the line. *To whoever packed this: you were seen.*
 
+**Tactical read.** Donations need triage and screening, because mismatched items consume transport and storage.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 57 — Notes: What's in the Box

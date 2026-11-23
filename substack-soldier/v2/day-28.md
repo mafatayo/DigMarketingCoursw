@@ -36,6 +36,10 @@ We celebrated with tea and a spoonful each of Babusya's last plum jam. Zenko gav
 
 I looked at him then. He was holding the envelope like a bird, with both hands, and I saw the other thing in his face, under the happiness. He'd done the sum. Seven months, maybe eight. A child coming into a city that still had sirens. And it wasn't fear exactly. It was the look of a man who's just been handed a reason, and understands what reasons cost.
 
+**Tactical read.** Family news is a morale buffer. Communication discipline lets it reach soldiers without revealing positions.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 28 — Notes: The Phone Is for Bad News

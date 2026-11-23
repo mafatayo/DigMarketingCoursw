@@ -34,6 +34,10 @@ That night I lay on the top bunk and listened to the dugout breathing. The bunk 
 
 Motor hummed his four bars until about three, and then stopped, and I heard him breathe out like a man setting something down.
 
+**Tactical read.** Evacuation time shapes survival odds. A death at a stabilization point reflects distance as much as injury, which is why everyone is trained in first aid.
+
+**OPSEC.** Medical details and casualty identities are limited to what a family would already know.
+
 ---
 
 # Day 14 — Notes: His Sister

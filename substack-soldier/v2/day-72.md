@@ -30,6 +30,10 @@ On the night of the rumor, Vira said something that stuck. "I've decided to be i
 
 "It's very *cheap,*" said Vira. "Nobody's offered me anything."
 
+**Tactical read.** Corruption in procurement damages capability where it hurts most: medical supplies, batteries, boots.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 72 — Notes: Receipts, Again

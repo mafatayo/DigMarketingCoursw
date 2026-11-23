@@ -32,6 +32,10 @@ At night the stove ran hot and the dugout smelled of soup and wet wool. We peele
 
 I thought, not for the first time, about the other side. About men in holes like this one, a few hundred meters off, counting their own toes. I couldn't make myself hate them, in that minute. I don't know what that says about me. Probably only that I was warm.
 
+**Tactical read.** Winter reshapes fighting. Cold limits movement, raises non-combat casualties and multiplies logistics demands for heating and clothing.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 33 — Notes: Cold as a Weapon

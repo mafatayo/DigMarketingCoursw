@@ -20,6 +20,10 @@ There are fewer of us than there were. In the weeks these dispatches skip there 
 
 I put the mug on a sandbag. There was a little skin of ice on it by the time I came back.
 
+**Tactical read.** Winter reduces some activity and raises the cost of everything else. The quiet is deceptive.
+
+**OPSEC.** Place names, unit designations, dates and exact timings are withheld or altered.
+
 ---
 
 # Day 61 — Notes: Snow in the City

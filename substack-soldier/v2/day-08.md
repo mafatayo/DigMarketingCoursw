@@ -32,6 +32,10 @@ That evening Halyna looked at my feet and handed me a dry pair of socks from the
 
 I couldn't hear in my left ear until the next morning. Zenko wore the glasses cracked for two weeks, till a parcel came. He said it gave him a more balanced view.
 
+**Tactical read.** Indirect fire against dug-in positions rewards depth and discipline. A trench only saves lives if people are in it when the rounds arrive.
+
+**OPSEC.** Positions, orientation of the line and distances are altered.
+
 ---
 
 # Day 8 — Notes: A Field You Can't Plow

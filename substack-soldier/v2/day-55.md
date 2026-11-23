@@ -26,6 +26,10 @@ There's one thing I did that I haven't told anyone. Under the last name, in penc
 
 It's arithmetic, not a wish. Everyone in this book was a person who thought they had time. I rubbed it out because I'd like to keep the rest of the page clean for a while longer.
 
+**Tactical read.** Casualty tracking is a legal and moral obligation. Informal ledgers fill the gap while formal records catch up.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 55 — Notes: The Names

@@ -34,6 +34,10 @@ I didn't, much. At four the kettle started and a mug was pushed into my hand wit
 
 There was a chip in the handle. I put my thumb in it.
 
+**Tactical read.** Outgoing and incoming fire sound different, and new arrivals are taught to read the difference. In the first seconds, reaction time decides more than cover does.
+
+**OPSEC.** Positions, orientation of the line and distances are altered.
+
 ---
 
 # Day 2 — Notes: Evacuated

@@ -24,6 +24,10 @@ The boy who'd followed the chaplain sat on the bottom step eating bread. When I 
 
 There were five mugs too many on the crate by the end, because everyone had taken a second, and Halyna washed them in the bucket one at a time, and then there were still the two chairs.
 
+**Tactical read.** Holidays draw heightened attention from the other side. Units keep watch rotations tight while allowing small rituals.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 62 — Notes: Basements

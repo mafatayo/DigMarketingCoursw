@@ -28,6 +28,10 @@ And Yaroslav asking whether anybody knew what you did for the part of the list t
 
 I wrote my own list, the first line trembling a little. *Sound. Quiet. A room that's mine.* And under it, after a long while: *Kitchen. Eggs. Third stair.* I don't know what it means yet. But it's mine, and I've put it in my pocket.
 
+**Tactical read.** Post-war planning for veterans affects retention now, because soldiers who see a future fight and re-enlist better.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 81 — Notes: Monday

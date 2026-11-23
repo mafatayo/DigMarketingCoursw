@@ -46,6 +46,10 @@ And the next morning he got orders, which he read with his face going carefully 
 
 "Good," said Motor. "They won't listen. But say it."
 
+**Tactical read.** Young officers are the system's shock absorber, and units that let them learn from their NCOs adapt faster.
+
+**OPSEC.** Names of living people are altered; locations and unit details are removed.
+
 ---
 
 # Day 38 — Notes: Nineteen

@@ -40,6 +40,10 @@ It wasn't until later that I put it together. The generator is the only thing th
 
 I lay awake and listened to it run. Chug, chug, chug. A very small, very stubborn engine, keeping a hole in the ground alive.
 
+**Tactical read.** Power is a capability. Generators keep communications up, and fuel and spares are as decisive in a section's daily life as munitions.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 23 — Notes: Maternity

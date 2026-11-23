@@ -32,6 +32,10 @@ At some point Halyna took my hand. Then Vira took hers. Then Yaroslav took Vira'
 
 On the shelf the notebook with the green cover lay where he'd left it. Fifty-three, and a few more. I didn't touch it.
 
+**Tactical read.** Drone operators and their positions are priority targets. This loss fits a pattern, not a surprise, which is why teams stay small and dispersed.
+
+**OPSEC.** Medical details and casualty identities are limited to what a family would already know.
+
 ---
 
 # Day 48 — Notes: Twenty-Three

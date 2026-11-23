@@ -30,6 +30,10 @@ When we got up to go, his daughter's picture was on the wall by the door, in a p
 
 On the walk back none of us said much. Bohdan, ahead of me, was carrying a jar of pickled tomatoes Pavlo had pressed on him, in both arms, like a baby. At the edge of the village, I looked back, and the old man was standing in his gate with the dog, one hand up, not waving. Just up, like someone checking the weather.
 
+**Tactical read.** Civilians who stay near the line complicate movement, deception and fire discipline. They are also a source of local information and a source of risk.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 20 — Notes: Eleven

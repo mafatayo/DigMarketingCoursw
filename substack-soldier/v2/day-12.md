@@ -32,6 +32,10 @@ Motor stood at the top of the steps watching the dust until it was gone.
 
 He said it flat. Like a man reporting the weather. I've been thinking about it since. I'd like to believe him.
 
+**Tactical read.** Volunteer supply fills real gaps, and it is also a risk. Unscreened movement near positions is why units limit visits and keep details out of the open.
+
+**OPSEC.** Routes, vehicle types and handover points are withheld.
+
 ---
 
 # Day 12 — Notes: What She Said

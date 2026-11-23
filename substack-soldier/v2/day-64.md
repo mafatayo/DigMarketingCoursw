@@ -26,6 +26,10 @@ I stayed at the post until the bars died. I counted, because I can't not now. Fo
 
 At ten minutes there was a message. One word. *Fine.*
 
+**Tactical read.** Video calls from forward areas are restricted, since the signal that connects a soldier to family can also be located.
+
+**OPSEC.** Frequencies, call procedures and signal details are withheld.
+
 ---
 
 # Day 64 — Notes: Mid-Call

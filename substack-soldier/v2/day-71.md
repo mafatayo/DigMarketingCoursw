@@ -34,6 +34,10 @@ Even Motor laughed.
 
 I've started keeping a tally of what we agree on. It's long. It includes: tea, dogs, dry feet, mothers, the importance of dill, the correct way to boil buckwheat, and the fact that the kettle should be filled exactly to the line and Halyna is wrong.
 
+**Tactical read.** Disagreement over orders is normal in a professional force. What matters is whether objections are heard and orders are still carried out.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 71 — Notes: What We Argue About

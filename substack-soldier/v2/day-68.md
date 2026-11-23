@@ -34,6 +34,10 @@ That night in the dugout there was a mug at my place. Yaroslav was waiting up fo
 
 I told him about the eggs.
 
+**Tactical read.** Return from leave is a known low point. Commanders schedule light duties for the first days.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 68 — Notes: Promises

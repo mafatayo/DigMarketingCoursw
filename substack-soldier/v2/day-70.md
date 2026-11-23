@@ -44,6 +44,10 @@ He laughed, thinly. "That's not Plutarch."
 
 "It's Motor."
 
+**Tactical read.** Command trust depends on perceived competence and honesty. The gap between headquarters and the line is chronic and manageable.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 70 — Notes: Accountability

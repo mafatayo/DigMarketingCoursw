@@ -24,6 +24,10 @@ I wrote it down so I'd remember. If you ever wonder what we're fighting for, I t
 
 When I put out the lamp that night I thought: *that was a very good day, and I should hold onto it.* I didn't know why. I just had the feeling you get when you've been given a gift and haven't been told the price.
 
+**Tactical read.** Calm intervals often precede pressure. Sections use them to repair, resupply and rest, not to relax.
+
+**OPSEC.** Place names, unit designations, dates and exact timings are withheld or altered.
+
 ---
 
 # Day 47 — Notes: A Good Day, Elsewhere

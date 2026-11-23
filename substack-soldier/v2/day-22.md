@@ -62,6 +62,10 @@ Walking back, Bohdan, loading tools, asked what the boy had been drawing. "Tanks
 
 I said I thought so. I'm trying to believe it.
 
+**Tactical read.** Children near the line learn threat recognition early. The long-term effect on a society is itself a strategic outcome of the war.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 22 — Notes: Drawings

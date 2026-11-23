@@ -28,6 +28,10 @@ Then Motor, hands in his pockets, mustache frosted. I gave him tea. He drank, gr
 
 And he did, softly, the four bars drifting out across the frozen field. The sun came up while we stood there. Pink, gold, white. And then, as it does, the day.
 
+**Tactical read.** Dawn and dusk carry heightened risk for movement and observation, so units do routine tasks at those hours with care.
+
+**OPSEC.** Positions, orientation of the line and distances are altered.
+
 ---
 
 # Day 56 — Notes: Opening

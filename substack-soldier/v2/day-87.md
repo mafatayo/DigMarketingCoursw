@@ -42,6 +42,10 @@ Motor read over my shoulder this morning, silently, like a very large owl. "Add 
 
 "I know," said Motor. "I'm trying to start a peace."
 
+**Tactical read.** Moral clarity under strain is a force multiplier, because soldiers who can say what they protect hold longer.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 87 — Notes: What I Ask

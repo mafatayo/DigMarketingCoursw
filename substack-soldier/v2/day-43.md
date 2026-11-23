@@ -38,6 +38,10 @@ Motor looked at the generator, at her, at the sky. He took his cap off. "Madam. 
 
 We charged everything. Every phone, every radio. Zenko charged a tiny mp3 player nobody knew he owned and played Bach in the corner, for an hour.
 
+**Tactical read.** Energy is a logistics item. Power banks and hand-crank chargers extend the operating life of radios and phones.
+
+**OPSEC.** Equipment counts, stock levels and supply routes are withheld.
+
 ---
 
 # Day 43 — Notes: The Phone Is a Lifeline

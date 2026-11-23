@@ -34,6 +34,10 @@ He stayed the night. At about three, the ground jumped, somewhere not far, and I
 
 In the morning Daniel looked ten years older. He drank his tea with both hands. When he left, he gave Halyna a card with an address and a phone number in Canada. "If you ever need anything. Anything." She put it in her pocket with the Babusya note. It's the fifth thing in that pocket. I've counted.
 
+**Tactical read.** Foreign medical volunteers fill training gaps but need escort and vetting, which is why their movement is restricted.
+
+**OPSEC.** Routes, vehicle types and handover points are withheld.
+
 ---
 
 # Day 41 — Notes: What the World Can Do

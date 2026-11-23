@@ -50,6 +50,10 @@ And mine:
 
 We sealed the tin with a strip of pink duct tape. Zenko put it on the highest shelf beside the cat mug.
 
+**Tactical read.** Writing to the future anchors meaning, and units that keep such rituals show greater resilience.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 84 — Notes: For the Child Who Opens the Tin

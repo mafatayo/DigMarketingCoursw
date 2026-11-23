@@ -24,6 +24,10 @@ On the way back the light went gold across the fields, and somebody was asleep a
 
 When I came into the dugout Vira sniffed the air and said, "Lemon. Fine. Lys can sit at the table."
 
+**Tactical read.** Rear areas are not safe areas. Hygiene, rest and supply points are dispersed, and visible gatherings are kept brief.
+
+**OPSEC.** Routes, vehicle types and handover points are withheld.
+
 ---
 
 # Day 11 — Notes: Water Upstairs

@@ -38,6 +38,10 @@ Respect here isn't built from speeches. It's built from doing the job and doing 
 
 I notice something else, too. She's the only person in the dugout who hasn't cried since I arrived. Not once. I think she's saving it, and I think she knows exactly how much.
 
+**Tactical read.** Electronic warfare makes voice communication unreliable. Skilled operators keep command and control working when automation fails.
+
+**OPSEC.** Frequencies, call procedures and signal details are withheld.
+
 ---
 
 # Day 40 — Notes: Magpie

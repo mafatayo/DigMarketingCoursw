@@ -26,6 +26,10 @@ Walking him to the steps, I asked if he played often. He took a while. "Not sinc
 
 That was all he said. I didn't ask what happened to the friend. You don't.
 
+**Tactical read.** Morale activities are scheduled around threat windows. Singing carries sound, so it is kept short and controlled.
+
+**OPSEC.** Anything that could identify a place, a time or a person's unit has been changed.
+
 ---
 
 # Day 25 — Notes: Under the Ground

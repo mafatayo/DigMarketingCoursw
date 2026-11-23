@@ -30,11 +30,15 @@ It went away after eleven minutes, as if bored. We waited another half hour anyw
 
 I've been trying to understand why the drone is worse than anything else. I think it's that it doesn't hate you. It's a patient eye, a small cold intelligence, and the thing to fear is the person at the other end, at a screen, with a joystick and a cup of coffee, deciding.
 
-An hour later one of them did decide, though not about us: about the next position, five hundred meters away. We heard it, a short flat bang, not very big. I stood in the doorway and counted the seconds until the net came alive. Then a voice, calm, asking for a medic. Halyna was gone before it finished.
+An hour later one of them did decide, though not about us: about the next position, not far off. We heard it, a short flat bang, not very big. I stood in the doorway and counted the seconds until the net came alive. Then a voice, calm, asking for a medic. Halyna was gone before it finished.
 
 She came back at dusk and went straight to the bucket. When Bohdan asked, she said, "He'll keep the foot." That was the only thing she said all evening.
 
 Later Bohdan flew a patrol of his own. I stood behind him and watched the little screen. A road, a line of trees, a bright flat sky. It's the same machine, the same thing. We're no different. This is what the century has done to all of us.
+
+**Tactical read.** Aerial surveillance often precedes fires. When a drone loiters, the chance of a strike on that or a neighboring position rises, so crews take cover and report.
+
+**OPSEC.** Positions, orientation of the line and distances are altered.
 
 ---
 
