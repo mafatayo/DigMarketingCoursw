@@ -1,10 +1,10 @@
-# Ten to Five: How a Call-Up Lands on a Household That Already Sleeps in a Corridor
+# Day 1 — Ten to Five: A Call-Up in a City Under Alerts
 
-*Notes from a section forming up, on what mobilization looks like in a city under nightly alerts.*
+*Notes on what mobilization looks like in a household that already sleeps in a corridor.*
 
 **Bottom line:** The call came at 4:50 a.m., and I left for the front with half a cup of my wife's tea still on the kitchen table.
 
-**OPSEC & Context:** *Fiction.* The narrator is a mobilized sound engineer assigned to a drone-support section. Dates, places and callsigns are altered for the story.
+**OPSEC & Context:** *Fiction.* The narrator is a mobilized sound engineer serving in a small drone-support section. Names of living people are altered; locations and unit details are removed.
 
 ## The Reality on the Ground
 
@@ -34,14 +34,25 @@ It was only at the second stop that I remembered the tea. I'd left about half of
 
 ## Tactical Observations
 
-- Mobilization turns civilians into soldiers in weeks, and the gap between summons and readiness is the most perishable asset an army has.
-- Alert apps have become a household instrument: the interval between warning and impact now sets what families do, long before any soldier does anything.
-- Call-ups arrive by phone at odd hours, which is why units insist on a short, plain list of what to bring.
+- Mobilization turns civilians into soldiers in weeks, and the gap between summons and readiness is the army's most perishable asset.
+- Alert apps now run household decisions: the gap between warning and impact decides what a family does.
+- Call-ups arrive by phone at odd hours, so the instructions are short and plain.
 
 ## The Human Element
 
-Nobody says the big sentence. The last words in a doorway are about food and collars, and that is how a household shows what it can't say.
+Nobody says the big sentence. The last words in a doorway are about food and a collar.
 
 ## How You Can Help (This Is Not a Fundraiser)
 
 *Dispatches from the Line* is fiction and raises no money. If you want to help real people affected by the war, look at established humanitarian organizations such as the International Committee of the Red Cross or the UN Refugee Agency, and check any charity's record before you give.
+
+---
+# Day 1 — Notes: The Corridor
+
+**Bottom line:** Thousands of children in this country have a favorite wall in a hallway; picture that when you read "the situation."
+
+Almost every flat in my city has a corridor with a mattress folded against the wall. Ask any child which wall is the good wall. The adults argue about it. The children know.
+
+Nobody planned a country where a six-year-old has a favorite wall. I'm not writing this to be pitied. I'm writing it so that the next time you read the word "situation," you picture a hallway with no windows and a flashlight on a hook at the height of a child.
+
+*Dispatches from the Line is a work of fiction.*

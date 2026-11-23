@@ -1,0 +1,62 @@
+# Day 71 — The Line: Disagreement and Duty
+
+*Notes on arguments about orders.*
+
+**Bottom line:** We argue about kettles and, sometimes, orders we think are wrong, and we still do the job.
+
+**OPSEC & Context:** *Fiction.* The narrator is a mobilized sound engineer serving in a small drone-support section. Anything that could identify a place, a time or a person's unit has been changed.
+
+## The Reality on the Ground
+
+Not politics, I take it back. We argue about plenty, and almost none of it is the big stuff.
+
+This week: the kettle. Whether it should be filled to the line or to the brim. Halyna's a brim person. Vira's a line person. It's become a cold war fought with passive-aggressive adjustments to the water level. Motor, asked to arbitrate, said, "I fix engines, not marriages."
+
+The order of the pickle jars. Whether a hedgehog counts as a pet. How to pronounce a particular word in a particular song, a dispute that lasted from breakfast until Tuesday and ended with Zenko leaving the room with great dignity. Whether Vira is "a morning person." She says she is. We all know.
+
+And under those, once or twice a week, the bigger one. What the army should do. Whether the plan is wise. Whether the numbers add up. Those have a sharper flavor, closer to the bone. Men who've held a line for months have opinions about the line.
+
+Last night it ran past midnight. The thing that set it off was a new order, from above, to hold a stretch of ground we'd been told two weeks ago to give up. Nobody understood it. Maksym read it out with his face carefully blank and said, "I don't agree with this, and I'm going to carry it out. I wanted you to hear both."
+
+"Both," said Motor.
+
+"Yes, Sergeant."
+
+"Good. That's honest."
+
+Then the argument. Yaroslav, who's nineteen and angry, said it was stupid. Zenko said that it might be stupid and still be necessary, which is the whole history of the human species. Halyna said that's easy for a man who's not on the end of it, and Zenko, stung, said that he was in fact on the end of it, he'd just been on a different part of the end, and she apologized, and he waved it off. It went on until nearly one.
+
+What's remarkable is that nobody here has ever failed to do a job because of an argument. We can shout at midnight about the plan and carry water for the same plan at dawn. I think it's because the argument isn't about winning. It's about being heard.
+
+"I disagree with you completely," Motor told Yaroslav, after forty minutes of heat. "And I'd give you my last sock."
+
+"I know," said Yaroslav. "I'd give you both of mine."
+
+"You have holes in them."
+
+"Then you'll have ventilation."
+
+Even Motor laughed.
+
+I've started keeping a tally of what we agree on. It's long. It includes: tea, dogs, dry feet, mothers, the importance of dill, the correct way to boil buckwheat, and the fact that the kettle should be filled exactly to the line and Halyna is wrong.
+
+## Tactical Observations
+
+- Disagreement over orders is normal in a professional force. What matters is whether objections are heard and orders are still carried out.
+- Disagreement over orders is normal in a professional force.
+- What matters is whether objections are heard and orders still carried out.
+
+## The Human Element
+
+A sock and a joke settle a long dispute about a kettle.
+
+---
+# Day 71 — Notes: What We Argue About
+
+**Bottom line:** Being allowed to question is the thing worth defending.
+
+We argue about what the army should do. It's not a failure of unity. It's a country with its eyes open, whose people have decided that fighting for something means being allowed to question it.
+
+That's the thing worth defending.
+
+*Dispatches from the Line is a work of fiction.*

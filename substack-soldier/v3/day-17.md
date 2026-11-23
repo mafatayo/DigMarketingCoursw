@@ -1,10 +1,10 @@
-# Twenty-Three: Birthdays, Targets and the Man Who Flies the Small Ones
+# Day 17 — Twenty-Three: Birthdays, Targets and the Man Who Flies the Small Ones
 
-*Notes from a dugout on why drone operators carry the highest risk in the section, and what the section does about it.*
+*Notes on why drone operators carry the highest risk in the section, and what the section does about it.*
 
 **Bottom line:** We made Bohdan a biscuit cake for his birthday, and I understood that he is the man most likely to be targeted.
 
-**OPSEC & Context:** *Fiction.* The narrator is a drone-support soldier in a small section. Dates, places and callsigns are altered for the story.
+**OPSEC & Context:** *Fiction.* The narrator is a mobilized sound engineer serving in a small drone-support section. Equipment counts, stock levels and supply routes are withheld.
 
 ## The Reality on the Ground
 
@@ -44,14 +44,21 @@ I didn't say it. I ate the cake.
 
 ## Tactical Observations
 
-- Drone operators generate observation for the section, which makes them priority targets for the other side and raises their risk well above everyone else's.
-- Operators keep flights short and change position, because exposure time, not skill, is what the other side hunts.
+- Drone operators generate observation, which makes them priority targets for the other side. That raises their risk well above that of the rest of the section.
+- Operators keep flights short and change position, because exposure time is what the other side hunts.
 - Replacing a lost airframe is easy; replacing a trained operator is not, and sections plan around that gap.
 
 ## The Human Element
 
-The cake was crushed biscuits and a power-cut candle. The section knew, without saying it, exactly who needed the most looking after.
+The cake was crushed biscuits and a power-cut candle. The section knew exactly who needed the most looking after.
 
-## How You Can Help (This Is Not a Fundraiser)
+---
+# Day 17 — Notes: Candles
 
-*Dispatches from the Line* is fiction and raises no money. If you want to help real people affected by the war, look at established humanitarian organizations such as the International Committee of the Red Cross or the UN Refugee Agency, and check any charity's record before you give.
+**Bottom line:** Birthday cakes in every shelter are made from biscuits.
+
+A mother in a basement shelter made her daughter a birthday cake out of biscuits and condensed milk and put a candle on it, one of the emergency ones. Eleven children and four old people sang. The little girl blew it out and everyone laughed because the lights had just gone anyway.
+
+It's the same cake we make. It tastes the same in every shelter.
+
+*Dispatches from the Line is a work of fiction.*

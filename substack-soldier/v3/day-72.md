@@ -1,0 +1,58 @@
+# Day 72 — Receipts: Corruption and Capability
+
+*Notes on what theft does at the margin.*
+
+**Bottom line:** Some of us are furious about theft, and Halyna ran out of the bandages she needed.
+
+**OPSEC & Context:** *Fiction.* The narrator is a mobilized sound engineer serving in a small drone-support section. Equipment counts, stock levels and supply routes are withheld.
+
+## The Reality on the Ground
+
+I've been too polite about this: some of us are very angry about the people who steal.
+
+It isn't constant. Most days it sits low like coals under ash. But now and then something blows on it. Last week it was a news story, a rumor probably, though not necessarily false, about equipment gone missing, contracts that didn't make sense, men in good coats getting rich while a boy in a hole can't find a spare battery. Motor said nothing. I watched his jaw.
+
+"I can take almost anything," said Yaroslav. "The cold. The mud. The noise. Being scared. What I can't take is knowing someone's making money from this."
+
+"There are people who do," said Zenko. "There always have been. In every war."
+
+"That doesn't make it acceptable."
+
+"No. It never has."
+
+I'm not naive. Any large machine has people who skim it. But there's a particular sourness in seeing it, even a rumor of it, from the bottom. A stolen winter jacket is a man's hands, blue at the knuckles. A missing tourniquet is Halyna's face when she runs out.
+
+And she did run out, once, two weeks ago. A particular size of bandage, the ones for the larger wounds. She counted three times. She stood in the middle of the dugout looking at the empty space on the shelf, and Motor said, "We'll get more." And she said, "I know. But I had to decide who," and went outside.
+
+I think about that more than any of the rumors.
+
+And yet. I've also seen the opposite, over and over. A volunteer who spent his own money, down to the last coin, to buy a van. A quartermaster who stayed up all night to count blankets so nobody would be short. A young officer who gave away his own warm coat in January. Honest people quietly doing right in enormous numbers.
+
+I think that's what keeps us from despair. The honest outnumber the thieves by a vast margin. We hear less about them. Honesty doesn't make headlines. It makes socks.
+
+On the night of the rumor, Vira said something that stuck. "I've decided to be impossible to bribe. It's the only part of the war I control."
+
+"That's very noble," said Yaroslav.
+
+"It's very *cheap,*" said Vira. "Nobody's offered me anything."
+
+## Tactical Observations
+
+- Corruption in procurement damages capability where it hurts most: medical supplies, batteries, boots.
+- Corruption damages capability where it hurts most: medical supplies, batteries, boots.
+- A shortage of a single bandage size is a choice about who.
+
+## The Human Element
+
+A medic does the sum of who she can save with what she has.
+
+---
+# Day 72 — Notes: Receipts, Again
+
+**Bottom line:** Ask where the money went; the dead deserve a receipt.
+
+Where did it go? That's the question every honest person asks. It isn't an insult. It's a basic respect for the people who gave.
+
+The civilians who gave their wages deserve a receipt. So do the dead.
+
+*Dispatches from the Line is a work of fiction.*

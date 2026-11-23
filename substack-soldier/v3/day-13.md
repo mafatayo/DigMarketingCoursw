@@ -1,0 +1,62 @@
+# Day 13 — The Colonel: Early Warning, Four-Legged
+
+*Notes on animals as unreliable but useful early warning.*
+
+**Bottom line:** A stray dog adopted us and warned us before a shelling, so we made him a colonel.
+
+**OPSEC & Context:** *Fiction.* The narrator is a mobilized sound engineer serving in a small drone-support section. Anything that could identify a place, a time or a person's unit has been changed.
+
+## The Reality on the Ground
+
+He turned up on a Wednesday, which is how I know it was fate, because nothing good ever happens on a Wednesday.
+
+A scrawny rust-colored dog with one ear up and one ear down, sitting at the top of the dugout steps as if he'd been hired. No collar. A tail that wagged in short, careful sweeps, like he wasn't sure he'd earned the right. We looked at him and he looked at us and for a full minute nobody moved.
+
+"Don't feed him," said Motor.
+
+"He's starving," said Halyna.
+
+"If we feed him, he stays."
+
+"He's staying."
+
+She went down and came back with a tin of meat and put it on the step. The dog ate it in four seconds and looked up with an expression that said, plainly, *I'm still here and I still exist.* Motor sighed the sigh of a man who has lost a very small war.
+
+By evening he had a name. We argued for an hour. Bohdan wanted Rocket. Vira wanted Chuck, for reasons she wouldn't give. Zenko proposed Cincinnatus, after a Roman general who put down his sword and went back to his farm, and got a long silence. In the end Motor, quiet, looking at the rumpled coat and the sad dignified eyes, said, "Colonel."
+
+So he's the Colonel. He outranks us all.
+
+His duties, as he understands them: inspect each person entering the dugout, boots to knees. Sleep on the warmest bunk, which is mine. Patrol the perimeter, which is about nine meters. And alert us.
+
+That last one I didn't believe until Friday. We were outside, a gray flat afternoon, nothing happening, and the Colonel stopped mid-sniff and went low, ears flat, staring at the sky above the tree line. Nobody said anything. Vira said, "Down," and we were already down, and four seconds after that, the first one landed. Then the second. I lay there with my face in the mud and my arms over my head, thinking: he knew. He heard it before we did, or he felt it in the ground, and he had the manners to tell us.
+
+When it stopped we all got up and brushed ourselves off with great dignity, as if we'd merely dropped something. The Colonel was crouched shaking against Halyna's legs. She put her hand on his head and kept it there.
+
+"Good boy," she said. "Good boy. Thank you."
+
+That night I was on watch, cold, thinking too much. Something warm pushed against my leg. The Colonel had come up out of the dugout and sat down against my shin, leaning his whole weight into me the way a tired child leans on a parent. I didn't pet him. I just let him sit. We watched the dark together for an hour. Once, in the distance, something went off, and he flinched, and leaned harder.
+
+Everyone else here came because of a summons or a law or a duty. He came because he chose to. He looked at a hole full of dirty, frightened strangers and decided we were worth leaning on.
+
+I'll try to deserve that.
+
+## Tactical Observations
+
+- Animals and locals often notice incoming fire sooner than people do. Any early-warning source helps in a noisy environment, though none is reliable.
+- Dogs and locals often react to incoming fire before people do.
+- Any early cue helps in a noisy environment, and none can be trusted fully.
+
+## The Human Element
+
+A stray leans against a watchman's shin. Nobody asked him to be there.
+
+---
+# Day 13 — Notes: Left Behind
+
+**Bottom line:** Pets wait at the gates for families who said "two days."
+
+When a family leaves in a hurry they tell the dog it's for two days. The dogs wait at the gates. We feed those. Nobody asks whose.
+
+There are thousands of them. Nobody counts. It's a small thing to put in an article about a war and it's the thing I can't stop thinking about.
+
+*Dispatches from the Line is a work of fiction.*

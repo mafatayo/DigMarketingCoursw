@@ -1,10 +1,10 @@
-# Bohdan: A Drone Operator's Last Morning
+# Day 48 — Bohdan: A Drone Operator's Last Morning
 
-*Notes on what the loss of an operator costs a small section, and how the section holds together afterward.*
+*Notes on what the loss of an operator costs a small section and how the section holds together.*
 
 **Bottom line:** Bohdan was killed by an enemy drone, and I couldn't make myself walk the forty feet to him.
 
-**OPSEC & Context:** *Fiction.* The narrator is a drone-support soldier. Names, places and the unit's identity are altered, and the details of the death are deliberately limited.
+**OPSEC & Context:** *Fiction.* The narrator is a mobilized sound engineer serving in a small drone-support section. Medical details and casualty identities are limited to what a family would already know.
 
 ## The Reality on the Ground
 
@@ -40,14 +40,21 @@ On the shelf the notebook with the green cover lay where he'd left it. Fifty-thr
 
 ## Tactical Observations
 
-- Operators and their positions are priority targets. This loss fits a pattern, which is why teams stay small and dispersed.
+- Drone operators and their positions are priority targets. This loss fits a pattern, not a surprise, which is why teams stay small and dispersed.
 - A section that loses its operator loses its eyes first, and rebuilding that capability takes longer than replacing equipment.
-- Evacuation and first aid in the first minutes matter more than anything that comes after, and they were not enough here.
+- Evacuation and first aid in the first minutes matter more than anything after, and they were not enough here.
 
 ## The Human Element
 
-Nobody offered comfort. The section sat together, and then held hands round a crate. It is the most honest thing the narrator has seen, and it's also how units stay functional.
+Nobody offered comfort. The section sat together, then held hands round a crate.
 
-## How You Can Help (This Is Not a Fundraiser)
+---
+# Day 48 — Notes: Twenty-Three
 
-*Dispatches from the Line* is fiction and raises no money. If you want to help real people affected by the war, look at established humanitarian organizations such as the International Committee of the Red Cross or the UN Refugee Agency, and check any charity's record before you give.
+**Bottom line:** He was twenty-three; ask about his life, not his death.
+
+He was twenty-three. His birthday was a month ago. We made a cake out of biscuits.
+
+I don't want to be told what his death was for. I want to be told what his life was. Ask me, and I'll tell you for an hour.
+
+*Dispatches from the Line is a work of fiction.*

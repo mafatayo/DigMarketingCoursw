@@ -10,3 +10,6 @@ It is not testimony, and nothing here should be read as a report from a real uni
 **Each post** ends with the line: *Dispatches from the Line is a work of fiction.*
 
 **Do not:** present Lys as a real person in comments, replies, social posts, or any appeal for money. If you ever add a donation link, point it to a real, verifiable organization and say so plainly.
+
+## v3 format (current)
+`substack-soldier/v3/` holds the final structure for each Dispatch: bottom line, OPSEC & context, the reality on the ground, tactical observations, the human element, and (on Days 1, 30, 60, 90) a "not a fundraiser" help block pointing to established organizations. The evening Notes follow, each ending with the fiction line.
